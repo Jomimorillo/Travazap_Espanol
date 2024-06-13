@@ -38,3673 +38,3212 @@ William Steig & Ted Elliott
 
 
 SHREK
-Era uma vez uma linda
-Princesa. Mas ela tinha um encantamento
-sobre ela de um tipo terrível que poderia
-só ser quebrado pelo primeiro beijo do amor.
-Ela foi trancada em um castelo guardado
-por um terrível dragão cuspidor de fogo.
-Muitos bravos cavaleiros tentaram
-libertá-la desta terrível prisão,
-mas não prevaleceu. Ela esperou no
-fortaleza do dragão na sala mais alta de
-a torre mais alta para seu verdadeiro amor
-e o primeiro beijo do amor verdadeiro. (risos)
-Como se isso fosse acontecer. o que
-uma carga de - (descarga do vaso sanitário)
-
-Allstar - por Smashmouth começa a tocar. Shrek continua sua
-dia. Enquanto em uma cidade próxima, os moradores se reúnem para ir
-depois do ogro.
-
-NOITE - PERTO DA CASA DE SHREK
-
-MAN1
-Acha que está lá?
-
-MAN2
-Tudo bem. Vamos obtê-lo!
-
-MAN1
-Uau. Aguentar. Você sabe o que isso
-coisa pode fazer com você?
-
-MAN3
-Sim, vai moer seus ossos por isso
-pão.
-
-Shrek se esgueira por trás deles e ri.
+Había una vez
 
-SHREK
-Sim, bem, na verdade, isso seria um
-gigante. Agora, ogros, oh, eles são muito piores.
-Eles vão fazer um terno de seu recém-
-pele descascada.
+una princesa hermosa.
 
-HOMENS
-Não!
-
-SHREK
-Eles vão raspar seu fígado. Aperte o
-geléia de seus olhos! Na verdade, é
-muito bom em torradas.
+Pero fue víctima
 
-MAN1
-De volta! De volta, fera! De volta! Eu te aviso!
-(acena a tocha para Shrek.)
+de un hechizo espantoso...
 
-Shrek calmamente lambe os dedos e apaga a tocha. o
-os homens se afastam dele. Shrek ruge muito alto e longo
-e sua respiração extingue todas as tochas restantes até que o
-os homens estão no escuro.
+que sólo se podía romper
 
-SHREK
-Esta é a parte em que você foge.
-(Os homens correm para fugir. Ele ri.)
-E fique de fora! (olha para baixo e pega
-até um pedaço de papel. Lê.) "Procurado.
-Criaturas de contos de fadas." (Ele suspira e
-joga o papel por cima do ombro.)
+con el primer beso de amor.``
 
+""Estaba encerrada en un castillo...
 
-O PRÓXIMO DIA
+protegida por un dragón terrible,
 
-Há uma linha de criaturas de contos de fadas. O chefe da guarda
-senta em uma mesa pagando as pessoas por trazerem as criaturas dos contos de fadas
-para ele. Há gaiolas ao redor. Algumas das pessoas na fila
-são Peter Pan, que está carregando Sininho em uma gaiola, Gipetto
-que está carregando Pinóquio, e um fazendeiro que está carregando os três
-pequenos porcos.
+que arrojaba fuego.``
 
-GUARDA
-Tudo bem. Este está cheio. Pegue
-um jeito! Mova-o junto. Vamos! Levante-se!
+""Muchos caballeros valientes
 
+habían tratado...
 
-PROTETOR DE CABEÇA
-Próximo!
+de sacarla de esta prisión...
 
-GUARDA
-(pegando a vassoura de bruxa) Dá-me isso!
-Seus dias de vôo acabaram. (quebra o
-vassoura ao meio)
+pero ninguno había triunfado``.
 
-PROTETOR DE CABEÇA
-São 20 moedas de prata para a bruxa.
-Próximo!
+""Ella esperaba en el cuarto
 
-GUARDA
-Levante-se! Vamos!
+más elevado de la torre más alta...
 
-PROTETOR DE CABEÇA
-Vinte peças.
+a su verdadero amory
 
-URSINHO
-(chorando) Esta gaiola é muito pequena.
+al primer beso de amorverdadero``.
 
-BURRO
-Por favor, não me entregue. Eu nunca vou
-ser teimoso novamente. Eu posso mudar. Por favor!
-Me dê outra chance!
+Como si eso fuera a pasar.
 
-VELHA
-Ah, cale a boca. (empurra a corda)
+¡Qué clase de--
 
-BURRO
-Oh!
+CUI DADO - OGRO
 
-PROTETOR DE CABEÇA
-Próximo! O que voce conseguiu?
+SE BUSCAN OGROS
 
-GIPETTO
-Este pequeno boneco de madeira.
+NO ENTRAR
 
-PINÓQUIO
-Eu não sou um fantoche. Eu sou um menino de verdade. (seu
-nariz cresce)
+Está ahí dentro.
 
-PROTETOR DE CABEÇA
-Cinco xelins pelo brinquedo possuído.
-Leve-o embora.
+¡Vamos por él!
 
-PINÓQUIO
-Pai, por favor! Não os deixe fazer isso!
-Ajude-me!
+Alto.
 
-Gipetto pega o dinheiro e vai embora. A velha avança
-para a mesa.
+¿Saben lo que les puede hacer?
 
-PROTETOR DE CABEÇA
-Próximo! O que voce conseguiu?
+Sí. Va a triturarles
 
-VELHA
-Bem, eu tenho um burro falante.
+los huesos para hacer pan.
 
-PROTETOR DE CABEÇA
-Certo. Bem, isso é bom para dez xelins,
-se você puder provar isso.
+De hecho,
 
-VELHA
-Oh, vá em frente, amiguinho.
+eso es lo que haría un gigante.
 
-Burro apenas olha para ela.
+Verán, los ogros...
 
-PROTETOR DE CABEÇA
-Nós iremos?
+son mucho peores. Los ogros hacen
 
-VELHA
-Oh, oh, ele é apenas... ele é apenas um pouco
-nervoso. Ele é realmente um tagarela.
-Fale, seu idiota cabeça-dura...
+trajes de la piel que te arrancan.
 
-PROTETOR DE CABEÇA
-É isso. Já ouvi o suficiente. Guardas!
+Te rebanan el hígado...
 
+te exprimen lajalea de los ojos.
 
-VELHA
-Não, não, ele fala! Ele faz. (finge
-ser Burro) eu posso falar. eu amo
-conversa. Eu sou a coisa mais falante
-você já viu.
+La verdad,
 
-PROTETOR DE CABEÇA
-Tire-a da minha vista.
+sabe rica en pan tostado.
 
-VELHA
-Não não! Juro! Oh! Ele pode falar!
+¡Atrás! ¡Atrás, bestia!
 
-Os guardas agarram a velha e ela luta com eles. Um
-de suas pernas voa para fora e chuta Sininho para fora do Peter Pan
-mãos, e sua gaiola cai na cabeça do Burro. Ele fica aspergido
-com pó de fada e ele é capaz de voar.
+¡Atrás! Te lo advierto.
 
-BURRO
-Ei! Eu posso voar!
+Cómo no.
 
-PETER PAN
-Ele pode voar!
+Ésta es la parte
 
-3 PORQUINHOS
-Ele pode voar!
+en la que salen corriendo.
 
-PROTETOR DE CABEÇA
-Ele pode falar!
+¡Y no regresen!
 
-BURRO
-Há, há! Isso mesmo, idiota! Agora eu sou
-um burro voador e falante. Você pode
-vi uma mosca doméstica, talvez até uma supermosca
-mas eu aposto que você nunca viu um burro
-voe. Há, há! (o pó mágico começa
-para se desgastar) Uh-oh. (ele começa a afundar
-para o chão.)
+""Se buscan.
 
-Ele bate no chão com um baque.
-
-PROTETOR DE CABEÇA
-Aproveite-o! (O burro começa a correr.)
-Depois dele!
-
-GUARDAS
-Ele está fugindo! Pegue ele! Deste jeito!
-Virar!
-
-Burro continua correndo e ele finalmente encontra Shrek. Literalmente.
-Shrek se vira para ver quem esbarrou nele. Burro parece assustado
-por um momento, ele vê os guardas vindo pelo caminho. Ele
-rapidamente se esconde atrás de Shrek.
+Criaturas de Cuentos de Hadas.``
 
-PROTETOR DE CABEÇA
-Você aí. Ogro!
-
-SHREK
-Sim?
-
-PROTETOR DE CABEÇA
-Por ordem de Lord Farquaad estou autorizado
-para colocá-lo tanto sob prisão e transporte
-você a uma instalação de reassentamento designada.
-
+Ésta está llena.
 
-SHREK
-Oh sério? Você e que exército?
+¡Llévatela!
 
-Ele olha para trás do guarda e o guarda se vira para olhar também
-e vemos que os outros homens fugiram. O guarda dobra o rabo
-e foge. Shrek ri e volta para seus negócios e
-começa a caminhar de volta para sua casa.
+Jiaioo
 
-BURRO
-Posso te dizer uma coisa? Ouço,
-você era realmente, realmente, realmente algo
-de volta aqui. Incrível!
+Prisioneros enanos somos
 
-SHREK
-Você está falando com... (ele se vira
-e Burro se foi) eu? (ele volta
-ao redor e Burro está bem na frente
-dele.) Uau!
+¡Dame eso!
 
-BURRO
-Sim. Eu estava falando com você. Posso dizer
-você que você que você foi ótimo de volta
-aqui? Esses guardas! Eles pensaram que
-foi tudo isso. Então você apareceu,
-e bam! Eles estavam tropeçando em si mesmos
-como bebês na floresta. Isso realmente
-me fez sentir bem em ver isso.
+¡No más vuelos!
 
-SHREK
-Oh isso é ótimo. Sério.
-
-BURRO
-Cara, é bom ser livre.
-
-SHREK
-Agora, por que você não vai comemorar o seu
-liberdade com seus próprios amigos? Hum?
-
-
-BURRO
-Mas, uh, eu não tenho nenhum amigo. E
-Eu não vou lá fora sozinho. Ei,
-espere um minuto! Tive uma ótima ideia! Eu vou
-ficar com você. Você é mau, verde,
-máquina de luta. Juntos vamos assustar
-o cuspe de qualquer um que cruze
-nós.
-
-Shrek se vira e olha Burro por um momento antes de rugir muito
-ruidosamente.
-
-BURRO
-Uau! Isso foi realmente assustador. Se você
-não se importe que eu diga, se isso não acontecer
-trabalho, sua respiração certamente vai ficar
-o trabalho feito, porque você definitivamente
-preciso de alguns Tic Tacs ou algo assim, porque
-seu hálito fede! Você quase queimou
-o cabelo do meu nariz, assim como o
-tempo... (Shrek cobre a boca, mas Burro
-continua a falar, então Shrek remove
-sua mão.) ... então eu comi alguns podres
-bagas. Eu tive gases fortes vazando
-fora da minha bunda naquele dia.
+20 piezas de plata por la bruja.
 
-SHREK
-Por que você está me seguindo?
-
-BURRO
-Eu vou te dizer por quê. (cantando) Porque
-Estou sozinho, não há ninguém aqui ao lado
-eu, meus problemas todos se foram, há
-ninguém para me ridicularizar, mas você tem que ter
-fé...
+¡El siguiente!
 
-SHREK
-Pára de cantar! Não é de admirar que você não
-tem algum amigo.
+Malditas 20 piezas.
 
-BURRO
-Uau. Só um verdadeiro amigo seria isso
-cruelmente honesto.
+-¡Siéntense ahí!
 
-SHREK
-Ouça, burrinho. Dê uma olhada
-Eu. O que eu sou?
+-¡Silencio!
 
-BURRO
-(olha todo o caminho para Shrek) Uh ... realmente
-alta?
+¡Estajaula está muy chica!
 
-SHREK
-Não! Eu sou um ogro! Você sabe. "Pegue seu
-tocha e forcados." Não é isso
-incomodá-lo?
+No me entregues. No volveré
 
-BURRO
-Não.
+a ser terco. Voy a cambiar.
 
-SHREK
-Sério?
+¡Cállate!
 
-BURRO
-Sério sério.
+¡El siguiente!
 
-SHREK
-Oh.
+- ¿Qué tienes?
 
-BURRO
-Cara, eu gosto de você. Qual é o seu nome?
+- Esta marioneta de madera.
 
-SHREK
-Ah, Shrek.
+Yo no soy una marioneta.
 
-BURRO
-Shrek? Bem, você sabe o que eu gosto sobre
-você, Shrek? Você tem aquele tipo de eu-não-me importo-o-que-ninguém-pensa-de-mim
-coisa. Eu gosto disso. Eu respeito isso,
-Shrek. Você está bem. (Eles vêm
-uma colina e você pode ver a cabana de Shrek.)
-Uau! Olhe para isso. Quem gostaria de viver
-no lugar assim?
+Soy un niño de verdad.
 
-SHREK
-Essa seria a minha casa.
+5 chelines por el juguete poseído.
 
-BURRO
-Oh! E é adorável! Apenas bonita.
-Você sabe que é um grande decorador.
-É incrível o que você fez com tal
-um orçamento modesto. Eu gosto daquele pedregulho.
-Essa é uma bela pedra. eu acho que você
-não entretém muito, não é?
+Llévenselo.
 
-SHREK
-Eu gosto da minha privacidade.
+¡Papá, no me hagas esto!
 
-BURRO
-Sabe, eu também. Isso é outra coisa
-temos em comum. Como eu odeio quando
-você tem alguém na sua cara. Você tem
-tentando dar-lhes uma dica, e eles
-não vai sair. Há aquele silêncio constrangedor.
-(silêncio constrangedor) Posso ficar com você?
+El siguiente.
 
+¿Qué traes?
 
-SHREK
-Uh o quê?
+Le traigo un burro que habla.
 
-BURRO
-Posso ficar com você, por favor?
+Bueno. Eso bien vale 1 0 chelines,
 
-SHREK
-(sarcasticamente) Claro!
+si lo puedes demostrar.
 
-BURRO
-Sério?
+Habla, animalito.
 
-SHREK
-Não.
+¿Y bien?
 
-BURRO
-Por favor! Eu não quero voltar lá!
-Você não sabe como é ser
-considerado uma aberração. (pausa enquanto ele
-olha para Shrek) Bem, talvez sim.
-Mas é por isso que temos que ficar juntos.
-Você tem que me deixar ficar! Por favor! Por favor!
+Sólo está nervioso.
 
+Normalmente habla sin parar.
 
-SHREK
-Ok! Ok! Mas uma noite apenas.
+¡Habla, tarado!
 
-BURRO
-Ah! Obrigada! (ele corre para dentro da cabana)
+Ya oí suficiente.
 
+¡Guardias!
 
-SHREK
-O que você está...? (O burro salta para
-uma cadeira.) Não! Não!
+¡No! Sí habla. ¡De veras!
 
-BURRO
-Isso vai ser divertido! Podemos ficar acordados
-tarde, trocando histórias viris, e em
-de manhã estou fazendo waffles.
+Me encanta hablar. Soy la cosa
 
-SHREK
-Oh!
+más habladora que haya vistojamás.
 
-BURRO
-Onde, uh, eu durmo?
+Llévensela de aquí.
 
-SHREK
-(irritado) Lá fora!
+¡Se lojuro!
 
-BURRO
-Oh, bem, eu acho que é legal. Quero dizer,
-Eu não te conheço, e você não sabe
-eu, então acho que fora é melhor, você
-conhecer. Aqui vou eu. Boa noite. (Shrek
-bate a porta.) (suspiro) Quer dizer, eu faço
-como o ar livre. Eu sou um burro. Eu era
-nascido fora. eu vou estar apenas sentado por
-me fora, eu acho, você sabe. Por
-eu mesmo, fora. eu estou sozinho... há
-ninguém aqui ao meu lado...
+¡Suéltenme!
 
-CASA DO SHREK - NOITE
+¡Sabe hablar!
 
-Shrek está se preparando para o jantar. Ele se senta e acende
-uma vela feita de cera de ouvido. Ele começa a comer quando ouve um
-ruído. Ele se levanta com um huff.
+Oye, puedo volar.
 
-SHREK
-(para Burro) Eu pensei que eu te disse para
-fique do lado de fora.
+- Puede volar.
 
-BURRO
-(da janela) Estou do lado de fora.
+- ¡Puede volar!
 
-Há outro barulho e Shrek se vira para encontrar a pessoa que
-fez o barulho. Ele vê várias sombras se movendo. Ele finalmente se transforma
-e vê 3 ratos cegos em sua mesa.
+Y sabe hablar.
 
-RATO CEGO1
-Bem, senhores, está muito longe do
-fazenda, mas que escolha temos?
+Sí. Soy el burro volador que habla.
 
+Habrás visto un pájaro mosca.
 
-RATO CEGO 2
-Não é casa, mas vai ficar bem.
+Quizá un pájaro burro. ¡Pero a que
 
+nunca has visto un burro volar!
 
-GORDO
-(pulando em uma lesma) Que cama linda.
+¡Agárrenlo!
 
+¡Tras él!
 
-SHREK
-Entendi. (Pega um mouse, mas ele escapa
-e cai em seu ombro.)
+¡Se está escapando!
 
-GORDO
-Encontrei um pouco de queijo. (morde o Shrek
-orelha)
+¡Atrápenlo!
 
-SHREK
-Ai!
+¡Por aquí! ¡Corran!
 
-GORDO
-Blá! Coisas horríveis.
+¡Oye, tú! ¡Ogro!
 
-RATO CEGO1
-É você, Gordo?
+¿Sí?
 
-GORDO
-Como você sabia?
+Por orden de Lord Farquaad...
 
-SHREK
-O suficiente! (ele pega os 3 ratos) O que são
-você está fazendo na minha casa? (Ele é atropelado
-por trás e ele deixa cair os ratos.)
-Ei! (ele se vira e vê os Sete Anões
-com a Branca de Neve na mesa.) Ah, não,
-não não. Morto fora da mesa.
+tengo autorización
 
+de arrestarlos a ambos...
 
-ANÃO
-Onde devemos colocá-la? o
-cama está tomada.
+y transportarlos a una nueva
 
-SHREK
-Huh?
+instalación designada de vivienda.
 
-Shrek vai até o quarto e abre a cortina.
-O Lobo Mau está sentado na cama. O lobo apenas olha
-dele.
+No me digas.
 
-LOBO MAU
-O que?
+¿Tú y qué ejército?
 
-LAPSO DE TEMPO
+¿Puedo decirte algo?
 
-Shrek agora tem o Lobo Mau pela gola e está arrastando
-ele para a porta da frente.
+Estuviste formidable allá atrás.
 
-SHREK
-Eu moro em um pântano. Eu coloquei sinais. Eu estou
-um ogro aterrorizante! O que eu tenho que
-obter um pouco de privacidade? (Ele abre o
-porta da frente para jogar o lobo fora e
-ele vê que todas as Fadas coletadas
-As Criaturas do Conto estão em sua terra.) Oh,
-não. Não! Não!
+¡Increíble!
 
-Os 3 ursos estão sentados ao redor do fogo, o flautista está tocando seu
-cachimbo e os ratos estão todos correndo para ele, alguns elfos estão dirigindo
-tráfego aéreo para que as fadas e bruxas possam pousar...etc.
+¿Me estás hablando...
 
+a mí?
 
-SHREK
-O que você está fazendo no meu pântano? (isto
-ecoa e todos ficam em silêncio.)
+Sí, a ti. Estuviste genial.
 
+Esos guardias se creían...
 
-Suspiros são ouvidos por toda parte. As 3 fadas boas se escondem dentro de um
-barraca.
+la gran maravilla.
 
-SHREK
-Tudo bem, saia daqui. Todos vocês,
-Mova isso! Vamos! Vamos lá! Hapaya!
-Hapaya! Ei! Rapidamente. Vamos! (mais
-anões correm para dentro de casa) Não, não!
-Não não. Não está lá. Não está lá. (elas
-feche a porta nele) Oh! (vira para
-olha Burro)
+Llegas y ¡zas! se tropiezan
 
-BURRO
-Ei, não olhe para mim. eu não convidei
-eles.
+como bebés en el bosque.
 
-PINÓQUIO
-Oh, Deus, ninguém nos convidou.
+Me dio gusto ver eso.
 
-SHREK
-O que?
+Fantástico.
 
-PINÓQUIO
-Fomos obrigados a vir aqui.
+Qué gusto ser libre.
 
-SHREK
-(espantado) Por quem?
+¿Por qué no vas a celebrar
 
-PEQUENO PORCO
-Senhor Farquaad. Ele bufou e ele bufou
-e ele... assinou um aviso de despejo.
+tu libertad con tus propios amigos?
 
+Pero, ah...
 
-SHREK
-(suspiro pesado) Tudo bem. Quem sabe onde
-esse cara Farquaad é?
+yo no tengo amigos. Y no voy
 
-Todos se olham, mas ninguém responde.
+a andar en el bosqueyo solo.
 
-BURRO
-Ah, eu sei. Eu sei onde ele está.
+¡Ya sé!
 
-SHREK
-Alguém mais sabe onde encontrar
-dele? Qualquer um?
+¡Me voy a quedar contigo!
 
-BURRO
-Eu! Eu!
+Eres una máquina verde arrasadora.
 
-SHREK
-Alguém?
+¡Vamos a asustar a todos!
 
-BURRO
-Oh! Ah, me escolha! Oh eu sei! Eu sei!
-Eu, eu!
+¡Cielos! ¡Eso sí fue aterrador!
 
-SHREK
-(suspiro) Ok, tudo bem. Atenção, todas as fadas
-coisas de conto. Não fique confortável.
-Suas boas-vindas estão oficialmente esgotadas.
-Na verdade, eu vou ver esse cara Farquaad
-agora e tirar todos da minha terra
-e de volta de onde você veio! (Pausa.
-Então a multidão vai à loucura.) Oh! (para Burro)
-Você! Você vem comigo.
+Y si eso no funciona,
 
-BURRO
-Tudo bem, isso é o que eu gosto de ouvir,
-cara. Shrek e Burro, dois robustos
-amigos, em uma cidade grande turbilhão
-aventura. Eu amo isso!
+tu aliento hará que huyan.
 
-BURRO
-(cantando) Na estrada novamente. Cante isso
-comigo, Shrek. Eu não posso esperar para obter
-Na estrada novamente.
+Necesitas unas mentas,
 
-SHREK
-O que eu disse sobre cantar?
+¡tu aliento apesta!
 
-BURRO
-Posso assobiar?
+Casi me quemas los pelos nasales.
 
-SHREK
-Não.
+Justo como la vez que...
 
-BURRO
-Posso cantarolar?
+comí moras podridas.
 
-SHREK
-Tudo bem, cantarolar.
+Me salieron gases fuertes
 
-Burro começa a cantarolar 'On the Road Again'.
+de la cola.
 
-DULOC - COZINHA
+¿Por qué me estás siguiendo?
 
-Um homem mascarado está torturando o Gingerbread Man. Ele está continuamente
-mergulhando-o em um copo de leite. Lord Farquaad entra.
+Te voy a decir por qué.
 
-FARQUAAD
-É o bastante. Ele está pronto para falar.
+Porque estoysolo
 
+Nohaynadiemásaquí
 
-O Gingerbread Man é retirado do leite e derrubado
-em uma assadeira. Farquaad ri enquanto caminha até o
-tabela. Porém quando ele chega na mesa vemos que vai
-até os olhos. Ele limpa a garganta e a mesa é abaixada.
+Aparte demí
 
+Todosmisproblemas
 
-FARQUAAD
-(ele pega as pernas do Gingerbread Man
-e brinca com eles) Corra, corra, corra,
-o mais rápido que puder. Você não pode pegar
-Eu. Eu sou o homem-biscoito.
+han desaparecido
 
-HOMEM DE GENGIBRE
-Você é um monstro.
+Nadiemásseburlará demí
 
-FARQUAAD
-Eu não sou o monstro aqui. Tu es. Você
-e o resto daquele lixo de conto de fadas,
-envenenando meu mundo perfeito. Agora, diga
-Eu! Onde estão os outros?
+Pero tienes que teneramigos
 
-HOMEM DE GENGIBRE
-Coma-me! (Ele cospe leite na boca de Farquaad
-olho.)
+¡Deja de cantar!
 
-FARQUAAD
-Tentei ser justo com vocês, criaturas.
-Agora minha paciência chegou ao fim!
-Diga-me ou eu vou... (ele faz como se
-puxe os botões do Gingerbread Man)
+Con razón no tienes amigos.
 
+Sólo un gran amigo puede ser
 
-HOMEM DE GENGIBRE
-Não, não, não os botões. Não é minha goma
-botões.
+tan cruelmente sincero.
 
-FARQUAAD
-Tudo bem então. Quem os está escondendo?
+Mírame, burrito.
 
+Mírame. ¿Qué soy?
 
-HOMEM DE GENGIBRE
-Ok, eu vou te dizer. Voce sabe o
-homem muffin?
+¿Muy alto?
 
-FARQUAAD
-O homem do muffin?
+¡No, soy un ogro! De los de ""agarra
 
-HOMEM DE GENGIBRE
-O homem dos bolinhos.
+tu antorcha y tu horquilla``.
 
-FARQUAAD
-Sim, eu conheço o homem muffin, que vive
-em Drury Lane?
+¿No te molesta?
 
-HOMEM DE GENGIBRE
-Bem, ela é casada com o homem dos bolinhos.
+No.
 
+¿De veras?
 
-FARQUAAD
-O homem do muffin?
+De veras, de veras.
 
-HOMEM DE GENGIBRE
-O homem muffin!
+Me caes bien.
 
-FARQUAAD
-Ela é casada com o homem muffin.
+¿Cómo te llamas?
 
-A porta se abre e o guarda-chefe entra.
-
-PROTETOR DE CABEÇA
-Meu Senhor! Nós achamos.
-
-FARQUAAD
-Então o que você está esperando? Trazer
-em.
-
-Mais guardas entram carregando algo que está coberto por um lençol.
-Eles desligam o que quer que seja e removem o lençol. É a Magia
-Espelho.
-
-HOMEM DE GENGIBRE
-(com admiração) Ahhhh...
-
-FARQUAAD
-Espelho mágico...
-
-HOMEM DE GENGIBRE
-Não diga nada a ele! (Escolhas do Farquaad
-ele e joga ele em uma lata de lixo
-com tampa.) Não!
-
-FARQUAAD
-Tarde. Espelho, espelho na parede.
-Este não é o reino mais perfeito
-de todos eles?
-
-ESPELHO
-Bem, tecnicamente você não é um rei.
-
-
-FARQUAAD
-Ah, Thelonius. (Thelonius levanta um
-espelho de mão e o esmaga com seu
-punho.) Você estava dizendo?
-
-ESPELHO
-O que quero dizer é que você ainda não é um rei.
-Mas você pode se tornar um. Tudo o que tens
-fazer é casar com uma princesa.
-
-FARQUAAD
-Prossiga.
-
-ESPELHO
-(ri nervosamente) Então, apenas sente-se
-e relaxe, meu senhor, porque é hora
-para você conhecer as solteiras elegíveis de hoje.
-E aqui estão eles! Número de despedida de solteira
-um é um recluso mentalmente abusado de
-um reino muito, muito distante. Ela gosta de sushi
-e banheira de hidromassagem a qualquer momento. Seus hobbies
-incluem cozinhar e limpar para ela
-duas irmãs más. Por favor, dê as boas-vindas à Cinderela.
-(mostra a foto da Cinderela) Bachelorette
-número dois é uma garota vestindo capa de
-a terra da fantasia. Embora ela viva
-com sete outros homens, ela não é fácil.
-Apenas beije seus lábios mortos e congelados e
-descobrir o que um fio vivo ela é. Venha
-sobre. Desista da Branca de Neve! (mostra
-foto da Branca de Neve) E por último, mas
-certamente não é o último, número de despedida de solteira
-três é uma ruiva ardente de um dragão guardado
-castelo cercado por lava fervente!
-Mas não deixe que isso te esfrie. Ela é
-uma pistola carregada que gosta de pina colads
-e ser pego pela chuva. Seu
-para o resgate, princesa Fiona! (Mostra
-foto da princesa Fiona) Assim será
-ser solteira número um, solteira
-número dois ou despedida de solteira número três?
-
-
-GUARDAS
-Dois! Dois! Três! Três! Dois! Dois! Três!
-
-
-FARQUAAD
-Três? Um? Três?
-
-TELÔNIO
-Três! (levanta 2 dedos) Escolha o número
-três, meu senhor!
-
-FARQUAAD
-Ok, ok, uh, número três!
-
-ESPELHO
-Lord Farquaad, você escolheu a princesa
-Fiona.
-
-FARQUAAD
-Princesa Fiona. Ela é perfeita. Tudo que eu
-tem que fazer é encontrar alguém que
-poder ir...
-
-ESPELHO
-Mas eu provavelmente deveria mencionar o pequeno
-coisa que acontece à noite.
-
-FARQUAAD
-Eu vou fazer isso.
-
-ESPELHO
-Sim, mas depois do pôr do sol...
-
-FARQUAAD
-Silêncio! vou fazer essa princesa Fiona
-minha rainha, e DuLoc finalmente terá
-o rei perfeito! Capitão, monte
-seus melhores homens. Nós vamos ter
-um torneio. (sorri maliciosamente)
-
-Estacionamento DuLoc - Seção Lancelot
-
-Shrek e Burro saem do campo que fica ao lado do estacionamento
-muito. O castelo em si tem cerca de 40 andares.
-
-BURRO
-Mas é isso. É isso aí.
-Isso é DuLoc. Eu disse que iria encontrá-lo.
-
-
-SHREK
-Então, deve ser o castelo do Lorde Farquaad.
-
-
-BURRO
-Uh-uh. Esse é o lugar.
-
-SHREK
-Você acha que talvez ele esteja compensando
-para algo? (Ele ri, mas então
-geme quando Burro não entende a piada.
-Ele continua andando pelo estacionamento
-muito.)
-
-BURRO
-Ei, espere. Espere, Shrek.
-
-CARA
-Depressa, querida. Estamos atrasados. Pressa.
-
-
-SHREK
-Ei você! (O atendente, que está vestindo
-uma cabeça gigante que se parece com Lord Farquaad,
-grita e começa a correr pela
-fileiras de corda para chegar ao portão da frente
-para fugir de Shrek.) Espere um segundo.
-Olha, eu não vou comer você. Eu acabei de
-- - Eu só - - (Ele suspira e então começa
-andando direto pelas fileiras. o
-atendente esbarra em uma parede e cai
-baixa. Shrek e Burro olham para ele então
-continue em DuLoc.)
-
-DULO
-
-Eles olham em volta, mas tudo está quieto.
-
-SHREK
-Está quieto. Muito quieto. Onde está todo mundo?
-
-
-BURRO
-Ei, olhe para isso!
-
-Burro corre e puxa uma alavanca que está presa a uma caixa
-marcado 'Informações'. A música acaba e então as portas da caixa
-Abra. Há pequenas pessoas de madeira dentro e eles começam
-cantar.
-
-PESSOAS DE MADEIRA
-Bem-vindo ao DuLoc uma cidade tão perfeita
-
-
-Aqui temos algumas regras
-
-Vamos deitá-los
-
-Não faça ondas, fique na linha
-
-E nós vamos nos dar bem
-
-DuLoc é o lugar perfeito
-
-Por favor, fique longe da grama
-
-Engraxe seus sapatos, limpe seu... rosto
-
-DuLoc é, DuLoc é
-
-DuLoc é o lugar perfeito.
-
-De repente, uma câmera tira a foto de Burro e Shrek.
-
-BURRO
-Uau! Vamos fazer isso de novo! (prepara
-para atropelar e puxar a alavanca novamente)
-
-
-SHREK
-(pega o rabo do Burro e o segura parado)
-Não não não não não! Não.
-
-Eles ouvem uma fanfarra de trompete e dirigem-se para a arena.
-
-FARQUAAD
-Bravos cavaleiros. Você é o melhor e
-mais brilhante em toda a terra. Hoje um
-de você deve provar a si mesmo...
-
-Enquanto Shrek e Burro descem o túnel para entrar na arena
-Burro está cantarolando a música tema de DuLoc.
-
-SHREK
-Tudo bem. Você está indo no caminho certo
-para um fundo batido.
-
-BURRO
-Me desculpe por isso.
-
-FARQUAAD
-Esse campeão terá a honra -
-- não, não - - o privilégio de sair
-e resgatar a adorável princesa Fiona
-da fortaleza de fogo do dragão. Se
-por qualquer motivo o vencedor não for bem sucedido,
-o primeiro vice-campeão ocupará seu lugar
-e assim por diante. Alguns de vocês
-pode morrer, mas é um sacrifício que estou disposto
-fazer. (aplausos) Deixe o torneio
-começar! (Ele percebe Shrek) Oh! O que é
-este? É horrível!
-
-SHREK
-(volta-se para o Burro e depois volta
-em Farquaad) Ah, isso não é muito legal.
-É apenas um burro.
-
-FARQUAAD
-De fato. Cavaleiros, novo plano! Aquele que
-mata o ogro será nomeado campeão!
-Tê-lo!
-
-HOMENS
-Pegue ele!
-
-SHREK
-Oi! Agora vamos! Espere agora. (solavancos
-em uma mesa onde há canecas de
-Cerveja)
-
-MULTIDÃO
-Vá em frente! Pegue ele!
-
-SHREK
-(segura uma caneca de cerveja) Não podemos apenas
-resolver isso com uma cerveja?
-
-MULTIDÃO
-Mate a fera!
-
-SHREK
-Não? Tudo bem então. (bebe a cerveja)
-Vamos!
-
-Ele pega a caneca e quebra a torneira do barril grande
-de cerveja atrás dele. A cerveja sai correndo encharcando o
-outros homens e molhando o chão. É como lama agora. slides do Shrek
-passa pelos homens e pega uma lança que um dos homens deixou cair.
-Quando Shrek começa a lutar, o Burro pula em um dos maiores
-barris de cerveja. Ele se liberta de suas cordas e começa a rolar.
-Burro consegue esmagar dois homens na lama. Há tanto
-luta acontecendo aqui eu não vou entrar em detalhes. Satisfazer
-dizer que Shrek chuta o traseiro.
-
-BURRO
-Ei, Shrek, me marque! Marque-me!
-
-Shrek vem e bate a cabeça de um homem contra Burros. Shrek
-levanta-se nas cordas e interage com a multidão.
-
-SHREK
-Sim!
-
-Um homem tenta se esgueirar atrás de Shrek, mas Shrek vira a tempo
-e o vê.
-
-MULHER
-A cadeira! Dê-lhe a cadeira!
-
-Shrek bate uma cadeira nas costas dos caras. Finalmente todos os homens
-estão para baixo. Burro chuta um deles no capacete, e o ding
-soa o fim da partida. O público vai à loucura.
-
-SHREK
-Oh sim! Ah! Ah! Obrigada! obrigada
-muitíssimo! Estou aqui até quinta. Tentar
-a vitela! Há, há! (risos)
-
-A risada para quando todos os guardas ligam suas armas
 Shrek.
 
-PROTETOR DE CABEÇA
-Devo dar a ordem, senhor?
+¿Shrek?
 
-FARQUAAD
-Não, eu tenho uma ideia melhor. Povo de
-DuLoc, dou-te o nosso campeão!
+¿Sabes qué me gusta de ti, Shrek?
 
-SHREK
-O que?
+Tu estilo de decir ""No me importa
 
-FARQUAAD
-Parabéns, ogro. Você ganhou o
-honra de embarcar em um grande e nobre
-busca.
+lo que piensen de mí``.
 
-SHREK
-Busca? Eu já estou em uma busca, uma busca
-para recuperar meu pântano.
+Eso me gusta.
 
-FARQUAAD
-Seu pântano?
+Te respeto, Shrek.
 
-SHREK
-Sim, meu pântano! Onde você despejou aqueles
-criaturas de contos de fadas!
+Mira eso. ¿A quién le puede
 
-FARQUAAD
-De fato. Tudo bem, ogro. eu vou fazer você
-um acordo. Vá nesta busca para mim, e
-Eu te devolvo seu pântano.
-
-SHREK
-Exatamente do jeito que era?
-
-FARQUAAD
-Até o último cogumelo coberto de lodo.
+gustarvivir en un lugar así?
 
+Ésa es mi casa.
 
-SHREK
-E os posseiros?
+¡Y es preciosa!
 
-FARQUAAD
-Tão bom quanto se foi.
+Simplemente hermosa.
 
-SHREK
-Que tipo de busca?
+Eres un gran decorador. Has hecho
 
-Time Lapse - Burro e Shrek agora estão andando pelo campo
-indo para longe de DuLoc. Shrek está mastigando uma cebola.
+mucho con un presupuesto bajo.
 
-BURRO
-Deixe-me ver se entendi. Você vai
-vá lutar contra um dragão e resgatar uma princesa
-só para Farquaad te devolver
-um pântano que você só não tem porque
-ele encheu de aberrações no primeiro
-Lugar, colocar. Está certo?
+Me gusta esa roca.
 
-SHREK
-Você sabe, talvez haja uma boa razão
-burros não devem falar.
+Es una roca bonita.
 
-BURRO
-Eu não entendo. Por que você não apenas puxa
-alguma daquelas coisas de ogro nele? Acelerador
-ele, sitiar sua fortaleza, mói
-seus ossos para fazer o seu pão, todo
-viagem de ogro.
+ALÉ ESE
 
-SHREK
-Ah, eu sei o quê. Talvez eu pudesse ter
-decapitou uma aldeia inteira e colocou
-suas cabeças em um pique, pegou uma faca,
-abra seu baço e beba seu
-fluidos. isso parece bom para você?
+CUI DADO - OGRO
 
+No recibes muchas visitas,
 
-BURRO
-Uh, não, não realmente, não.
+¿verdad?
 
-SHREK
-Para sua informação, há muito
-mais aos ogros do que as pessoas pensam.
+Me gusta tenervida privada.
 
-BURRO
-Exemplo?
+A mí también. Odio cuando tienes
 
-SHREK
-Exemplo? Certo, ogros são como cebolas.
-(ele estende a cebola)
+a alguien encima...
 
-BURRO
-(cheira a cebola) Eles fedem?
+y le lanzas una indirecta
 
-SHREK
-Sim não!
+y no se va...
 
-BURRO
-Eles te fazem chorar?
+y hay un silencio embarazoso...
 
-SHREK
-Não!
-
-BURRO
-Você os deixa no sol, eles ficam
-todo marrom, comece a brotar branquinho
-cabelos.
+- ¿Puedo quedarme contigo?
 
-SHREK
-Não! Camadas! As cebolas têm camadas. Ogros
-tem camadas! As cebolas têm camadas. Você
-pegue? Nós dois temos camadas. (ele levanta
-um suspiro e depois vai embora)
+- ¿Qué?
 
-BURRO
-(seguindo atrás de Shrek) Oh, vocês dois
-tem camadas. Oh. {Sniffs} Você sabe,
-nem todo mundo gosta de cebola. Bolo! Todo o mundo
-adora bolos! Os bolos têm camadas.
+¿Puedo quedarme contigo...
 
-SHREK
-Eu não me importo... o que todo mundo gosta.
-Ogros não são como bolos.
+por favor?
 
-BURRO
-Sabe o que mais todo mundo gosta?
-Parfaits. Você já conheceu uma pessoa,
-você diz: "Vamos pegar um parfait", eles
-dizer: "Claro que não, eu não gosto de parfait"?
-Parfaits são deliciosos.
+Claro.
 
-SHREK
-Não! Você denso, irritante, em miniatura
-Besta de carga! Ogros são como cebolas!
-E de história. Tchau tchau. Te vejo mais tarde.
+- ¿Lo dices en serio?
 
+- No.
 
-BURRO
-Parfaits pode ser a coisa mais deliciosa
-em todo o maldito planeta.
+¡No puedo regresar! ¡No sabes
 
-SHREK
-Sabes, acho que preferia o teu cantarolar.
+lo que es ser un fenómeno!
 
+Bueno, quizá sí sepas.
 
-BURRO
-Você tem um lenço ou algo assim? Eu estou
-fazendo bagunça. Apenas a palavra parfait
-me faça começar a babar.
+¡Pero por eso tenemos que unirnos!
 
-Eles vão embora. Há uma montagem de sua jornada. Andando por
-um campo ao pôr do sol. Dormindo sob uma lua brilhante. Shrek tentando
-apagar a fogueira no dia seguinte e ter um pequeno problema,
-então Burro faz xixi no fogo para apagá-lo.
+¡Déjame quedarme! ¡Por favor!
 
-GUARDA DO DRAGÃO
+Está bien. Está bien.
 
-Shrek e Burro estão caminhando até a fortaleza que deveria
-casa princesa Fiona. Parece um vulcão gigante.
+Pero sólo una noche.
 
+¡Gracias!
 
-BURRO
-(funga) Ah! Shrek! Você fez isso?
-Você tem que avisar alguém antes de você apenas
-quebrar um. Minha boca estava aberta e
-tudo.
+¡Va a ser divertido! Nos vamos
 
-SHREK
-Acredite em mim, Burro, se fosse eu, você
-estar morto. (funga) É enxofre. Nós
-deve estar chegando perto.
+a contar nuestras aventuras...
 
-BURRO
-Sim, certo, enxofre. Não fique falando
-sobre isso é o enxofre. eu sei o que
-Eu cheiro. Não era enxofre. Isto
-não saiu nenhuma pedra também.
+y en la mañana, ¡haré waffles!
 
+¿Dónde voy a dormir?
 
-Eles sobem pela lateral do vulcão/manter e olham para baixo. Lá
-é um pequeno pedaço de rocha bem no centro e é aí que
-o castelo é. É cercado por lava fervente. Parece muito
-pressentimento.
+¡Afuera!
 
-SHREK
-Claro, é grande o suficiente, mas olhe para o
-localização. (risos... então a risada vira
-em um gemido)
+Bueno, está bien. Digo, yo no
 
-BURRO
-Ah, Shrek? Uh, lembre-se quando você disse
-os ogros têm camadas?
+te conozco, tú no me conoces...
 
-SHREK
-Ah, sim.
+así que afuera es lo mejor.
 
-BURRO
-Bem, eu tenho uma pequena confissão para
-faço. Burros não têm camadas. Nós
-usar nosso medo lá fora em nosso
-mangas.
+Ya me voy.
 
-SHREK
-Espere um segundo. Burros não têm mangas.
+Buenas noches.
 
+Me gusta el exterior.
 
-BURRO
-Você sabe o que eu quero dizer.
+Soy un burro. Nací afuera.
 
-SHREK
-Você não pode me dizer que tem medo de altura.
+Estaré sentadoyo solo, afuera.
 
+Yo solo, afuera.
 
-BURRO
-Não, estou apenas um pouco desconfortável
-sobre estar em uma ponte frágil sobre
-uma ebulição como de lava!
+Estoysolo
 
-SHREK
-Vamos, Burro. estou bem aqui ao lado
-sim, ok? Para apoio emocional., vamos
-apenas enfrentar essa coisa juntos um
-pequeno passo de bebê de cada vez.
+Nohaynadiemásaquí
 
-BURRO
-Sério?
+Aparte demí
 
-SHREK
-Sério sério.
+Te dije que te quedaras afuera.
 
-BURRO
-Ok, isso me faz sentir muito melhor.
+Estoy afuera.
 
+Dista mucho de ser la granja,
 
-SHREK
-Apenas continue se movendo. E não olhe para baixo.
+pero ¿qué otra opción tenemos?
 
+No estoy en casa,
 
-BURRO
-Ok, não olhe para baixo. Não olhe para baixo.
-Não olhe para baixo. Continue em movimento. Não
-olhar para baixo. (ele passa por um apodrecido
-bordo e acaba olhando para baixo
-na lava) Shrek! Estou olhando para baixo!
-Oh, Deus, eu não posso fazer isso! Apenas me deixe
-fora, por favor!
+pero me voy a acomodar fácilmente.
 
-SHREK
-Mas você já está na metade.
+- Qué hermosa cama.
 
-BURRO
-Mas eu sei que metade está segura!
+- ¡Te agarré!
 
-SHREK
-OK tudo bem. Eu não tenho tempo para isso.
-Você vai voltar.
+Encontré un poco de queso.
 
-BURRO
-Shrek, não! Espere!
+Del más oloroso.
 
-SHREK
-Só Burro - - Vamos dançar
-então, vou? (salta e balança o
-ponte)
+- ¿Eres tú, Gorder?
 
-BURRO
-Não faça isso!
+- ¿Cómo supiste?
 
-SHREK
-Oh, me desculpe. Fazer o que? Ah, isso? (salta
-a ponte novamente)
+¡Ya basta!
 
-BURRO
-Isso!
+¿Qué están haciendo en mi casa?
 
-SHREK
-Sim? Sim, faça isso. OK. (continua a
-quicar e balançar enquanto ele faz o Burro atravessar
-a Ponte)
+No, no, no.
 
-BURRO
-Não, Shrek! Não! Pare!
+¡Bajen a la muerta de la mesa!
 
-SHREK
-Você disse faça isso! Eu estou fazendo isso.
+¿Dónde la ponemos?
 
-BURRO
-Eu vou morrer. Eu vou morrer. Shrek,
-Eu vou morrer. (passos em terra firme)
-Oh!
+La cama está ocupada.
 
-SHREK
-Isso serve, Burro. Isso serve. (anda em
-em direção ao castelo)
+¿Qué?
 
-BURRO
-Legal. Então, onde está esse cuspidor de fogo
-dor-no-pescoço de qualquer maneira?
+¡Vivo en un pantano! ¡Pongo
 
-SHREK
-Lá dentro, esperando por nós para resgatá-la.
-(risos)
+letreros! ¡Soy un ogro aterrador!
 
-BURRO
-Eu estava falando sobre o dragão, Shrek.
+¿Qué necesito hacer para tener
 
+un poco de vida privada?
 
-DENTRO DO CASTELO
+Ay, no.
 
-BURRO
-Você tem medo?
+Ay, no.
 
-SHREK
-Não.
+- ¡Basta!
 
-BURRO
-Mas...
+- ¡No me empujes!
 
-SHREK
-Shh.
+¿Qué están haciendo
 
-BURRO
-Ah, bom. Nem eu. (vê um esqueleto
-e suspiros) porque não há nada de errado
-com medo. O medo é sensato
-resposta a uma situação desconhecida.
-Situação perigosa desconhecida, eu poderia
-adicionar. Com um dragão que cospe fogo
-e come cavaleiros e cospe fogo,
-com certeza não significa que você é um covarde
-se você está um pouco assustado. eu com certeza
-diabos não é nenhum covarde. Eu sei que.
+en mi ciénaga?
 
+Bueno, váyanse de aquí.
 
-SHREK
-Burro, duas coisas, está bem? Cale-se.
-Agora vá até lá e veja se você pode
-encontrar qualquer escada.
+¡Todos...
 
-BURRO
-Escadas? Eu pensei que estávamos procurando
-a princesa.
+muévanse! ¡Vámonos!
 
-SHREK
-(colocando um capacete) A princesa vai
-estar subindo as escadas no quarto mais alto
-na torre mais alta.
+¡Hapaya!¡Hapaya!
 
-BURRO
-O que te faz pensar que ela estará lá?
+No, no, ahí no. ¡Ahí no!
 
+No me mires a mí,
 
-SHREK
-Li em um livro uma vez. (saindo)
+yo no los invité.
 
+Cielos, nadie nos invitó.
 
-BURRO
-Legal. Você lida com o dragão. eu vou lidar
-as escadas. Eu vou encontrar aquelas escadas.
-Eu vou chicotear a bunda deles também. Aquelas escadas
-não vai saber para que lado eles estão indo.
-(saindo)
+- ¿Qué?
 
-SALA VAZIA
+- Nos forzaron a venir aquí.
 
-Burro ainda está falando sozinho enquanto olha ao redor da sala.
+- ¿Quién los forzó?
 
+- Lord Farquaad.
 
-BURRO
-Vou tomar medidas drásticas. Chute-o
-ao meio-fio. Não mexa comigo. Eu estou
-o mestre da escada. eu dominei o
-escadas. Eu gostaria de ter um passo aqui.
-Eu pisaria em tudo.
+Soplóy soplóy-- firmó
 
-EM OUTRO LUGAR
+un apercibimiento de desalojo.
 
-Shrek vê uma luz na janela da torre mais alta.
+Está bien.
 
-SHREK
-Bem, pelo menos sabemos onde a princesa
-é, mas onde está o...
+¿Quién sabe
 
-BURRO
-(os) Dragão!
+dónde está el tal Farquaad?
 
-Burro suspira e sai correndo enquanto o dragão ruge novamente.
-Shrek consegue tirar o Burro do caminho assim como o dragão
-respira fogo.
+¡Yo! ¡Yo sé dónde está!
 
-SHREK
-Burro, cuidado! (ele consegue
-segura a cauda do dragão e segura
-em) Entendi!
+¿Alguien más sabe
 
-O dragão fica irritado com isso e sacode sua cauda e Shrek
-vai voando pelo ar e colide com o teto do
-torre mais alta. Fiona acorda com um empurrão e olha para ele deitado
-no chão.
+dónde lo puedo encontrar?
 
-BURRO
-Oh! Aah! Aah!
+- ¿Nadie?
 
-Burro fica encurralado quando o dragão derruba tudo, exceto um pequeno
-parte da ponte em que ele está.
+- ¡Yo! ¡Yo!
 
-BURRO
-Não. Oh, não, não! (o dragão ruge) Oh,
-que dentes grandes você tem. (o Dragão
-rosna) Quero dizer, dentes brancos e brilhantes.
-Eu sei que você provavelmente ouve isso o tempo todo
-de sua comida, mas você deve alvejar,
-porque esse é um sorriso deslumbrante que você
-chegou lá. Eu detecto um toque de menta
-frescor? E sabe o que mais? Você é
-- - Você é uma menina dragão! Ah com certeza!
-Quero dizer, é claro que você é uma menina dragão.
-Você está apenas cheirando a beleza feminina.
-(o dragão começa a agitar os olhos
-para ele) Qual é o problema com você?
-Você tem algo em seu olho? Ohh.
-Oh. Oh. Cara, eu realmente adoraria ficar,
-mas você sabe, eu sou, uh... (o dragão
-sopra um anel de fumaça em forma de
-coração direto para ele, e ele tosse) eu sou
-um asmático, e não sei se
-trabalhar se você vai soprar fumaça
-argolas. Shrek! (o dragão o pega
-levanta com os dentes e o leva embora)
-Não! Shrek! Shrek! Shrek!
+- ¿Nadie en absoluto?
 
-SALA DE FIONA
+- ¡Escógeme a mí!
 
-Shrek geme quando se levanta do chão. Ele está de costas para Fiona
-então ela ajeita o vestido e se deita na cama. Ela
-então rapidamente estende a mão e pega o buquê de flores
-a mesa lateral. Ela então se deita e parece estar dormindo.
-Shrek se vira e vai até ela. Ele olha para Fiona para
-um momento e ela franze os lábios. Shrek a pega pelos ombros
-e a afasta.
+¡Yo sé! ¡Yo sé! ¡Yo, yo!
 
-FIONA
-Oh! Oh!
+Está bien, bueno.
 
-SHREK
-Acordar!
+¡Atención, todos!
 
-FIONA
-O que?
+¡Criaturas de cuentos de hadas!
 
-SHREK
-Você é a princesa Fiona?
+¡No se pongan muy cómodos!
 
-FIONA
-Estou, esperando um cavaleiro tão ousado a ponto de
-resgate-me.
+¡Ya abusaron oficialmente
 
-SHREK
-Oh, isso é legal. Agora vamos!
+de mi hospitalidad!
 
-FIONA
-Mas espere, Senhor Cavaleiro. Este é nosso
-primeiro encontro. Não deveria ser uma maravilha,
-momento romântico?
+¡Voy a ir a ver al tal Farquaad
 
-SHREK
-Sim, desculpe, senhora. Não há tempo.
+ahora mismoy a hacer...
 
+que los saquen de aquí
 
-FIONA
-Ei, espere. O que você está fazendo? Você deve
-varre-me fora dos meus pés para fora da janela
-e descer uma corda em seu corcel valente.
+y se los lleven a sus tierras!
 
+Tú.
 
-SHREK
-Você teve muito tempo para planejar isso,
-você não tem?
+Tú vas a venir conmigo.
 
-FIONA
-(sorri) Mm-hmm.
+Eso es lo queyo quería oír.
 
-Shrek quebra a fechadura da porta e a puxa para fora e para baixo
-o corredor.
+¡Shreky Burro, dos amigos bravos,
 
-FIONA
-Mas temos que saborear este momento! Você
-poderia recitar um poema épico para mim. UMA
-balada? Um soneto! Um limerique? Ou alguma coisa!
+se van de aventura a la ciudad!
 
+¡Me encanta!
 
-SHREK
-Eu não acho.
+De viaje otra vez
 
-FIONA
-Posso pelo menos saber o nome do meu campeão?
+Canta conmigo, Shrek
 
+Memueroporirme
 
-SHREK
-Ah, Shrek.
+de viaje otra vez
 
-FIONA
-Senhor Shrek. (limpa a garganta e segura
-um lenço) eu rezo para que você
-tome este favor como um sinal de minha gratidão.
+¿Qué te dije de cantar?
 
+- ¿Puedo silbar?
 
-SHREK
-Obrigado!
+- No.
 
-De repente, eles ouvem o rugido do dragão.
+- ¿Puedo tararear?
 
-FIONA
-(surpreso) Você não matou o dragão?
+- Está bien. Tararea.
 
+¡Ya basta!
 
-SHREK
-Está na minha lista de tarefas. Agora vamos!
-(sai correndo e arrasta Fiona atrás
-dele.)
+Está listo para hablar.
 
-FIONA
-Mas isso não está certo! Você foi feito
-para atacar, espada desembainhada, bandeira voando.
-Foi o que todos os outros cavaleiros fizeram.
+Corre, corre a toda velocidad.
 
+¡Soy el Hombre deengibre,
 
-SHREK
-Sim, logo antes de explodirem em chamas.
+no me puedes agarrar!
 
+¡Eres un monstruo!
 
-FIONA
-Essa não é a questão. (Shrek de repente
-pára e ela corre para ele.) Oh! (Shrek
-a ignora e se dirige para uma porta de madeira
-para o lado.) Espere. Onde você está
-indo? A saída é ali.
+¡Yo no soy el monstruo,
 
-SHREK
-Bem, eu tenho que salvar minha bunda.
+sino tú!
 
-FIONA
-Que tipo de cavaleiro você é?
-
-SHREK
-Um de cada tipo. (abre a porta para
-a sala do trono)
+¡Tú y todos los tipejos
 
-BURRO
-(os) Desacelere. Devagar, querida, por favor.
-Eu acredito que é saudável conhecer
-alguém por um longo período de tempo.
-Apenas me chame de antiquado. (risos
-preocupado) (nós o vemos de perto e
-à distância enquanto Shrek se esgueira
-a sala) eu não quero me apressar
-uma relação física. não estou emocionalmente
-pronto para um compromisso de, uh, este
-- - Magnitude é realmente a palavra que eu sou
-procurando por. Magnitude- - Ei, isso
-é o contato físico indesejado. Ei o que
-você esta fazendo? Está bem, está bem. Vamos só
-recuar um pouco e dar este passo
-de uma vez. Nós realmente devemos conhecer
-primeiro como amigos ou amigos por correspondência.
-Eu estou na estrada muito, mas eu adoro
-receber cartões - - Eu realmente adoraria
-para ficar, mas... - Não faça isso! Isso é
-minha cauda! Essa é a minha cauda pessoal. Você é
-vai arrancar. eu não dou permissão
-- - O que você vai fazer com isso?
-Ei, agora. Sem chance. Não! Não! Não não! Não.
-Não não não. Não! Oh!
+de los cuentos de hadas...
 
-Shrek pega uma corrente que está conectada ao lustre e balança
-em direção ao dragão. Ele erra e ele balança de volta novamente. Ele olha
-para cima e vê que o lustre está bem acima da cabeça do dragão.
-Ele puxa a corrente e ela solta e ele cai e esbarra
-Burro fora do caminho quando o dragão está prestes a beijá-lo.
-Em vez disso, o dragão beija a bunda de Shreks. Ela abre os olhos e
-ruge. Shrek solta a corrente e o lustre cai
-a cabeça, mas é muito grande e passa por cima da cabeça e forma
-uma espécie de coleira para ela. Ela ruge novamente e Shrek e Burro
-saia correndo. Muito estilo 'Matrix'. Shrek pega Burro e
-então agarra a princesa Fiona enquanto ele passa por ela.
+que envenenan mi mundo!
 
-BURRO
-Olá princesa!
+¿Dónde están los demás?
 
-FIONA
-Isso fala!
+¡Cómeme!
 
-SHREK
-Sim, está fazendo ele calar a boca isso é
-o truque.
+¡He tratado de serjusto con Uds.
 
-Todos eles começam a gritar quando o dragão avança sobre eles. Manchas de Shrek
-um escorregador descendente e pula. Mas infelizmente existe um
-rachadura na pedra e atinge Shrek bem na virilha. Dele
-olhos se cruzam e quando ele chega ao fundo do escorregador ele tropeça
-desligado e anda levemente.
+peroya se me acabó la paciencia!
 
-SHREK
-Oh!
+Si no me dices, te...
 
-Shrek os aproxima da saída e coloca Burro e Fiona no chão.
+¡No, mis botones de ""gomitas``, no!
 
+Bueno.
 
-SHREK
-Ok, vocês dois, ouviram a saída! Eu vou
-cuide do dragão.
+¿Quién los está ocultando?
 
-Shrek pega uma espada e volta para o interior do
-castelo. Ele joga a espada para baixo entre vários
-elos da cadeia. Os elos da corrente estão presos ao lustre que
-ainda está no pescoço do dragão.
+Bueno, te voy a decir.
 
-SHREK
-(ecoando) Corra!
+¿Conoces al Hombre de Pan?
 
-Todos saem correndo para a saída com o dragão na brasa
-perseguir. Eles chegam à ponte e atravessam. Os dragões
-cospe fogo e a ponte começa a queimar. Todos eles aguentam
-pela preciosa vida enquanto as cordas que seguram a ponte desmoronam. Elas
-são balançados para o outro lado. Enquanto eles ficam pendurados de cabeça para baixo, eles parecem
-horrorizado enquanto o dragão voa sobre a lava fervente para
-pegue eles. Mas de repente o lustre com a corrente empurrou o
-dragão de volta e ela é incapaz de chegar até eles. Nossa gangue sobe
-rapidamente para a segurança como o dragão parece irritado e então dá um
-choramingar triste enquanto observa Burro ir embora.
+- ¿El Hombre de Pan?
 
-FIONA
-(deslizando pela colina do 'vulcão') Você
-fez isso! Você me resgatou! Você é incrível.
-(atrás dela Burro cai morro abaixo)
-Você é... - Você é maravilhoso. Você é...
-(se vira e vê Shrek cair no
-colina e esbarrar no Burro) um pouco
-heterodoxo, admito. Mas tua ação
-é grande, e o teu coração é puro. Eu sou
-eternamente em dívida. (O burro limpa
-sua garganta.) E onde iria um bravo
-cavaleiro ficar sem seu nobre corcel?
+- El Hombre de Pan.
 
+Sí, conozco al Hombre de Pan.
 
-BURRO
-Espero que você tenha ouvido isso. Ela me chamou
-um nobre corcel. Ela acha que sou um corcel.
+¿El que vive en la Calle Drury?
 
+Ella está casada
 
-FIONA
-A batalha está vencida. Você pode remover seu
-capacete, bom senhor cavaleiro.
+con el Hombre de Pan.
 
-SHREK
-Oh não.
+- ¿El Hombre de Pan?
 
-FIONA
-Por que não?
+- ¡El Hombre de Pan!
 
-SHREK
-Eu tenho cabelo de capacete.
+Ella está casada
 
-FIONA
-Por favor. eu não olharia para o rosto
-do meu salvador.
+con el Hombre de Pan.
 
-SHREK
-Não, não, você não iria - - 'st.
+Milord, lo encontramos.
 
-FIONA
-Mas como você vai me beijar?
+¿Qué esperan? ¡Tráiganlo!
 
-SHREK
-O que? (para Burro) Isso não estava no
-descrição do trabalho.
+Espejo Mágico...
 
-BURRO
-Talvez seja um privilégio.
+¡No le digas nada!
 
-FIONA
-Não, é o destino. Ah, você deve saber
-Como vai. Uma princesa trancada em um
-torre e cercado por um dragão é resgatado
-por um bravo cavaleiro, e então eles compartilham
-primeiro beijo do amor verdadeiro.
+Buenas noches.
 
-BURRO
-Hum? Com Shrek? Vocę acha... - Espere.
-Espere. Você acha que Shrek é verdade
-amor?
+Espejo, espejo, en la pared...
 
-FIONA
-Bem, sim.
+¿no es éste el reino
 
-Tanto Burro quanto Shrek caíram na gargalhada.
+más perfecto de todos?
 
-BURRO
-Você acha que Shrek é seu verdadeiro amor!
+Bueno, técnicamente,
 
+usted no es un rey.
 
-FIONA
-O que é tão engraçado?
+Ah, Thelonius.
 
-SHREK
-Vamos apenas dizer que eu não sou seu tipo, ok?Fiona:
-Claro que você é. Você é meu salvador.
-Agora - - Agora retire seu capacete.
+¿Decías?
 
-SHREK
-Olhar. Eu realmente não acho que isso seja um
-boa ideia.
+Quise decir que todavía
 
-FIONA
-Basta tirar o capacete.
+no es un rey.
 
-SHREK
-Eu não estou indo.
+Pero se puede convertir en rey
 
-FIONA
-Tire.
+si se casa con una princesa.
 
-SHREK
-Não!
+Continúa.
 
-FIONA
-Agora!
+Así que, nada más siéntese
 
-SHREK
-Ok! Fácil. Como você manda. Sua Alteza.
-(tira o capacete)
+y relájese, milord...
 
-FIONA
-Você... - Você é um... - um ogro.
+porque es hora de que conozca
 
-SHREK
-Oh, você estava esperando o Príncipe Encantado.
+a las solteras disponibles de hoy.
 
+¡Y aquí las tiene!
 
-FIONA
-Bem, sim, na verdade. Oh não. Isto é
-tudo errado. Você não deveria ser
-um ogro.
+La soltera No. 1
 
-SHREK
-Princesa, fui enviado para resgatá-la por
-Lorde Farquaad, está bem? Ele é aquele que
-quer casar com você.
+es una reclusa...
 
-FIONA
-Então por que ele não veio me resgatar?
+sujeta a abuso mental
 
+en un reino lejano.
 
-SHREK
-Boa pergunta. Você deveria perguntar isso a ele
-quando chegarmos lá.
+Le gustan el sushi y losjacuzzis.
 
-FIONA
-Mas eu tenho que ser resgatado pelo meu verdadeiro
-amor, não por algum ogro e seu- - seu
-bicho de estimação.
+Le gusta cocinary limpiar
 
-BURRO
-Bem, tanto para o nobre corcel.
+los cuartos de sus hermanas malas.
 
-SHREK
-Você não está facilitando meu trabalho.
+Por favor dé la bienvenida a
 
+¡Cenicienta!
 
-FIONA
-Sinto muito, mas seu trabalho não é problema meu.
-Você pode dizer a Lord Farquaad que se ele
-quer me resgatar adequadamente, eu estarei
-esperando por ele aqui.
+La soltera No. 2 es una chica
 
-SHREK
-Ei! Eu não sou mensageiro de ninguém, tudo
-certo? (sinistro) Eu sou um entregador.
-(ele rapidamente a pega no colo e balança
-ela por cima do ombro como se ela fosse uma
-saco de batatas)
+de la tierra de la fantasía.
 
-FIONA
-Você não ousaria. Coloque-me para baixo!
+Aunque vive con 7 hombres,
 
-SHREK
-Você vem, Burro?
+es muy recatada.
 
-BURRO
-Estou bem atrás de você.
+Bese sus labios muertos, helados,
 
-FIONA
-Coloque-me no chão, ou você vai sofrer o
-consequências! Isso não é digno!
-Coloque-me para baixo!
+yverá lo electrizante que es.
 
-MADEIRAS
+Venga un aplauso para
 
-Pouco tempo se passou e Fiona se acalmou. Ela só
-pendurada frouxamente enquanto Shrek a carrega.
+¡Blanca Nieves!
 
-BURRO
-Ok, então aqui está outra pergunta. Dizer
-há uma mulher que gosta de você, certo,
-mas você realmente não gosta dela desse jeito.
-Como você a decepcionou muito fácil, então
-seus sentimentos não são feridos, mas você não
-se queimar a uma batata frita e comido?
+Y la última en orden,
 
-FIONA
-Você acabou de dizer a ela que ela não é sua verdade
-Ame. Todo mundo sabe o que acontece quando
-você encontra sua... (Shrek a deixa cair
-o chão) Ei! Quanto mais cedo chegarmos
-DuLoc melhor.
+pero no en importancia...
 
-BURRO
-Você vai adorar lá, princesa.
-É lindo!
+la soltera No. 3
 
-FIONA
-E o meu futuro noivo? Lorde Farquaad?
-Como ele é?
+es una pelirroja...
 
-SHREK
-Deixe-me colocar desta forma, princesa. Homens
-da estatura de Farquaad estão em falta.
-(ele e o Burro riem)
+¡protegida por un dragón
 
-Shrek então começa a jogar água no rosto para lavar
-a poeira e a sujeira.
+y un foso de lava!
 
-BURRO
-Não sei. Há quem pense
-pouco dele. (eles riem de novo) Fiona:
-Pare com isso. Parem com isso, vocês dois. Você é
-apenas com inveja, você nunca pode medir
-a um grande governante como Lord Farquaad.
+Pero no deje que eso le afecte.
 
+Le gustan las piñas coladas...
 
-SHREK
-Sim, bem, talvez você esteja certa, princesa.
-Mas eu vou deixar você fazer a "medição"
-quando você vê-lo amanhã.
+y que la pille la lluvia.
 
-FIONA
-(olha para o sol poente) Amanhã?
-Vai demorar tanto? Não devemos parar
-fazer acampamento?
+Rescátela y es suya,
 
-SHREK
-Não, isso vai demorar mais. Nós podemos manter
-indo.
+¡la princesa Fiona!
 
-FIONA
-Mas há ladrões na floresta.
+¿Entonces qué escoge?
 
-BURRO
-Uau! Tempo limite, Shrek! O acampamento está começando
-para soar bem.
+¿La soltera No. 1 ?
 
-SHREK
-Ei, vamos lá. eu sou mais assustador do que qualquer coisa
-vamos ver nesta floresta.
+¿La soltera No. 2?
 
+¿O la soltera No. 3?
 
-FIONA
-Eu preciso encontrar um lugar para acampar agora!
+Dos, tres, uno. Tres.
 
+Escoja la No. 3, milord.
 
-As orelhas de Burro e Shrek abaixam enquanto se afastam dela.
+¡Está bien! ¡Está bien!
 
+¡La número tres!
 
-PENHASCO DE MONTANHA
+Lord Farquaad, usted ha escogido
 
-Shrek encontrou uma caverna que parece estar em boas condições. Ele empurra
-uma pedra fora do caminho para revelar a caverna.
+a la princesa Fiona.
 
-SHREK
-Ei! Por aqui.
+La princesa Fiona.
 
-BURRO
-Shrek, podemos fazer melhor que isso. EU
-não acho que isso é digno de uma princesa.
+Es perfecta.
 
+Nada más tengo que encontrar
 
-FIONA
-Não, não, é perfeito. Ele só precisa
-alguns toques caseiros.
+a alguien...
 
-SHREK
-Toques caseiros? Como o quê? (ele ouve
-um barulho de lacrimejamento e olha para Fiona
-que arrancou a casca de uma árvore.)
+- Hay algo que pasa de noche...
 
+- Lo haré.
 
-FIONA
-Uma porta? Bem, senhores, peço-vos
-boa noite. (entra na caverna e
-coloca a porta da casca atrás dela)
+- Sí, pero después del ocaso...
 
+- ¡Silencio!
 
-BURRO
-Quer que eu leia uma história para você dormir?
-Eu vou.
+Convertiré a la princesa Fiona
 
-FIONA
-(os) Eu disse boa noite!
+en mi reina...
 
-Shrek olha para Burro por um segundo e então vai mover o
-pedregulho de volta na frente da entrada da caverna com Fiona
-ainda dentro.
+¡y DuLoc tendrá,
 
-BURRO
-Shrek, o que você está fazendo?
+finalmente, el rey perfecto!
 
-SHREK
-(risos) Eu só... - Você sabe... - Oh,
-vamos. Eu estava apenas brincando.
+Capitán,
 
-MAIS TARDE NAQUELA NOITE
+reúna a sus mejores hombres.
 
-Shrek e Burro estão sentados ao redor de uma fogueira. Eles estão olhando
-para o céu enquanto Shrek aponta certas constelações de estrelas
-para Burro.
+¡Vamos a hacer un torneo!
 
-SHREK
-E, uh, aquele, isso é Throwback,
-o único ogro a cuspir mais de três
-Campos de trigo.
+ESTACIONAMI ENTO
 
-BURRO
-Certo. Sim. Ei, você pode dizer o meu futuro
-dessas estrelas?
+SECCIÓN LANZAROTE
 
-SHREK
-As estrelas não dizem o futuro, Burro.
-Eles contam histórias. Olha, há Bloodnut,
-o Flatulento. Você pode adivinhar o que ele é
-famoso por.
+Ahí está. Eso es DuLoc.
 
-BURRO
-Eu sei que você está inventando isso.
+Te dije que lo iba a encontrar.
 
-SHREK
-Não, olhe. Lá está ele, e lá está o
-grupo de caçadores fugindo de sua
-fedor.
+Entonces...
 
-BURRO
-Isso não é nada, mas um monte de pouco
-pontos.
+ése debe ser
 
-SHREK
-Você sabe, Burro, às vezes as coisas são
-mais do que aparentam. Hum? Esqueça.
+el castillo de Lord Farquaad.
 
+Sí, ése es el lugar.
 
-BURRO
-(dá um grande suspiro) Ei, Shrek, o que
-vamos fazer quando chegarmos ao nosso pântano de qualquer maneira?
+¿Crees que esté compensando
 
+por alguna deficiencia?
 
-SHREK
-Nosso pântano?
+¡Oye, espera!
 
-BURRO
-Você sabe, quando terminarmos de resgatar
-a princesa.
+¡Espérame, Shrek!
 
-SHREK
-Nós? Burro, não existe "nós". Há
-não "nosso". Há apenas eu e meu pântano.
-A primeira coisa que vou fazer é construir
-um muro de três metros em volta da minha terra.
+¡Corre, cariño!
 
-BURRO
-Você me cortou profundamente, Shrek. Você me cortou de verdade
-profundo agora. Você sabe oque eu penso?
-Eu acho que essa coisa toda de parede é apenas
-uma maneira de manter alguém fora.
+¡Vamos a llegar tarde!
 
-SHREK
-Não, você acha?
+¡Oye! ¡Tú!
 
-BURRO
-Você está escondendo alguma coisa?
+Espera un segundo.
 
-SHREK
-Não importa, Burro.
+Mira, no te voy a comer.
 
-BURRO
-Oh, esta é outra daquelas cebolas
-coisas, não é?
+Yo sólo...
 
-SHREK
-Não, este é um daqueles desista e
-deixe as coisas em paz.
+Yo sólo...
 
-BURRO
-Por que você não quer falar sobre isso?
+Qué silencio hay aquí.
 
+Demasiado silencio.
 
-SHREK
-Por que você quer falar sobre isso?
+LA ANTIGUA
 
-BURRO
-Por que você está bloqueando?
+TI ENDA DE RECUERDOS
 
-SHREK
-Eu não estou bloqueando.
+¿Dónde están todos?
 
-BURRO
-Ah, sim, você é.
+¡Mira esto!
 
-SHREK
-Burro, estou avisando.
+Bienvenidoa DuLoc
 
-BURRO
-Quem você está tentando manter fora?
+Unpuebloperfecto
 
-SHREK
-Todos! Ok?
+Tenemos ciertas reglas
 
-BURRO
-(pausa) Oh, agora estamos chegando a algum lugar.
-(sorri)
+Selas vamosa decir
 
-Neste ponto, Fiona puxa a 'porta' da entrada para
-a caverna e picos para fora. Nenhum dos caras a vê.
+Compórtese, haga cola
 
-SHREK
-Oh! Pelo amor de Pedro! (levanta-se e
-caminha até a beira do precipício
-e senta-se)
+ynos llevaremosbien
 
-BURRO
-Qual é o seu problema? O que você tem contra
-o mundo inteiro mesmo?
+DuLoces un lugarperfecto
 
-SHREK
-Olha, eu não sou o único com o problema,
-ok? É o mundo que parece ter
-um problema comigo. As pessoas dão uma olhada
-para mim e vá. "Aah! Socorro! Corra! Um grande,
-estúpido, feio ogro!" Eles me julgam antes
-eles até me conhecem. É por isso que estou melhor
-fora sozinho.
+Porfavor, cuideasuburro
 
-BURRO
-Você sabe o que? Quando nos conhecemos, eu não
-acho que você era apenas um grande, estúpido, feio
-ogro.
+Vistabien, límpiese--la cara
 
-SHREK
-Sim, eu sei.
+DuLoces
 
-BURRO
-Então, uh, há algum burro lá em cima?
+DuLoces
 
+DuLoces un lugarperfecto
 
-SHREK
-Bem, há, hum, Gabby, a Pequena
-e irritante.
+BI ENVENI DO A DULOC
 
-BURRO
-Ok, ok, eu vejo agora. O grande brilhante
-um, bem ali. Aquele aí?
+¡Caramba!
 
+- Veamos eso otra vez.
 
-Fiona abre a porta.
+- No.
 
-SHREK
-Essa é a lua.
+¡Caballeros valientes!
 
-BURRO
-Oh, tudo bem.
+¡Uds, sonlosmejores
 
-DuLoc - Quarto do Farquaad
+ymásbrillantes de esta tierra!
 
-A câmera filma um monte de coisas de casamento. A música suave toca
-no fundo. Farquaad está na cama, observando o Magic
-Mirror mostra a ele a princesa Fiona.
+Hoy, uno de ustedes demostrará,,,
 
-FARQUAAD
-Mais uma vez, mostre-me novamente. Espelho Espelho,
-mostre-a para mim. Mostre-me a princesa.
+Te estás ganando una nalgada.
 
+Perdón.
 
-ESPELHO
-Hmph.
+El campeón tendrá el honor--
 
-O espelho retrocede e começa a tocar novamente desde o início.
+no, no, el privilegio...
 
+de iry rescatar...
 
-FARQUAAD
-Ah. Perfeito.
+a la hermosa princesa Fiona...
 
-Farquaad olha para seu peito nu e puxa o lençol para cima
-cobrir-se como se Fiona pudesse vê-lo enquanto ele olha timidamente
-em sua imagem no espelho.
+de la torre ardiente del dragón.
 
-MANHÃ
+Si, por alguna razón,
 
-Fiona sai da caverna. Ela olha para Shrek e Burro
-que ainda estão dormindo. Ela vagueia na floresta e vem
-através de um pássaro azul. Ela começa a cantar. O pássaro canta junto
-com ela. Ela atinge notas cada vez mais altas e o pássaro luta
-para acompanhá-la. De repente, a pressão da nota é muito
-grande e o pássaro explode. Fiona parece um pouco tímida, mas
-ela olha para os ovos que o pássaro deixou para trás. Lapso de tempo, Fiona
-agora está cozinhando os ovos para o café da manhã. Shrek e Burro ainda estão
-adormecido. Shrek acorda e olha para Fiona. Burro está falando
-em seu sono.
+el ganador no tiene éxito...
 
-BURRO
-(silenciosamente) Mmm, sim, você sabe que eu gosto
-é assim. Vem cá Neném. Eu disse
-Eu gosto disso.
+el segundo finalista
 
-SHREK
-Burro, acorde. (o sacode)
+ocupará su lugar.
 
-BURRO
-Huh? O que?
+Y así, en adelante.
 
-SHREK
-Acordar.
+Quizá algunos de Uds. mueran...
 
-BURRO
-O que? (estica e boceja)
+pero es un sacrificio
 
-FIONA
-Bom Dia. Hm, como você gosta do seu
-ovos?
+que estoy dispuesto a hacer.
 
-BURRO
-Ah, bom dia, princesa!
+APLAUSO
 
-Fiona se levanta e coloca os ovos na frente deles.
+¡Que empiece el torneo!
 
-SHREK
-O que é tudo isso?
+¿Qué es eso?
 
-FIONA
-Você sabe, nós meio que saímos mal
-começar ontem. eu queria fazer isso
-você decide. Quero dizer, afinal, você fez
-resgate-me.
+¡Qué espanto!
 
-SHREK
-Obrigado.
+Usted no es muy amable.
 
-Burro cheira os ovos e lambe os lábios.
+Sólo es un burro.
 
-FIONA
-Bem, coma. Temos um grande dia pela frente
-de nós. (saindo)
+Cierto. ¡Caballeros!
 
-MAIS TARDE
+Cambio de plan.
 
-Eles estão mais uma vez a caminho. Eles estão andando pela
-floresta. Shrek arrota.
+Ay, oigan, por favor.
 
-BURRO
-Shrek!
+Esperen un segundo.
 
-SHREK
-O que? É um elogio. Melhor sair
-do que em, eu sempre digo. (risos)
+¿No podemos arreglar esto
 
-BURRO
-Bem, não é maneira de se comportar na frente
-de uma princesa.
+mientras nos tomamos una cerveza?
 
-Fiona arrota
+¿No?
 
-FIONA
-Obrigado.
+Bueno, muy bien.
 
-BURRO
-Ela é tão desagradável quanto você.
+¡Peleen!
 
-SHREK
-(risos) Você sabe, você não é exatamente
-o que eu esperava.
+¡La silla!
 
-FIONA
-Bem, talvez você não devesse julgar as pessoas
-antes de conhecê-los.
+¡Dale la silla!
 
-Ela sorri e continua andando, cantando baixinho. De repente
-do nada, um homem desce e arrebata Fiona
-uma árvore.
+¡Gracias!
 
-ROBIN HOOD
-La liberte! Ei!
+Muchas gracias. Estaré aquí hasta
 
-SHREK
-Princesa!
+el jueves. Prueben la ternera.
 
-FIONA
-(para Robin Hood) O que você está fazendo?
+¿Doy la orden, señor?
 
+No, se me ocurre algo mejor.
 
-ROBIN HOOD
-Fique quieto, mon chérie, pois eu sou seu salvador!
-E eu estou resgatando você desse verde... (beijos
-em seu braço enquanto Fiona puxa de volta
-desgosto)... besta.
+Gente de DuLoc...
 
-SHREK
-Ei! Essa é minha princesa! Vá te encontrar
-ter!
+¡les presento a nuestro campeón!
 
-ROBIN HOOD
-Por favor, monstro! Você não pode ver que eu sou um
-pouco ocupado aqui?
+¿Qué?
 
-FIONA
-(ficando farto) Olha, amigo, eu não
-saiba quem você pensa que é!
+Felicidades, ogro.
 
-ROBIN HOOD
-Oh! É claro! Oh, que rude. Por favor
-deixe-me apresentar-me. Oh, Homens Alegres.
-(risos)
+Te has ganado el honor de emprender
 
-De repente, um acordeão começa a tocar e os homens Merry aparecem
-dos arbustos. Eles começam a cantar a música tema de Robin.
+una gran y noble cruzada.
 
-HOMENS FELIZES
-Ta, dah, dah, dah, whoo.
+¿Cruzada?
 
-ROBIN HOOD
-Eu roubo dos ricos e dou aos
-carente.
+Estoy a la mitad de una...
 
-HOMENS FELIZES
-Ele pega uma pequena porcentagem,
+cruzada
 
-ROBIN HOOD
-Mas não sou ganancioso. eu resgato bonito
-donzelas, cara, eu estou bem.
+para recuperar mi ciénaga.
 
-HOMENS FELIZES
-Que cara, Monsieur Hood.
+¿ Tu ciénaga?
 
-ROBIN HOOD
-Quebre isso. Eu gosto de uma luta honesta
-e uma garotinha atrevida...
+¡Sí! Mi ciénaga-- donde arrojó a
 
-HOMENS FELIZES
-O que ele está basicamente dizendo é que ele gosta
-para obter...
+todas las criaturas de los cuentos.
 
-ROBIN HOOD
-Pago. Então... quando um ogro no mato
-agarra uma senhora pelo bumbum. Isso é ruim.
+Ya veo.
 
+Bueno, vamos a hacer un trato.
 
-HOMENS FELIZES
-Isso é ruim.
+Emprende esta cruzada a mi nombre
 
-ROBIN HOOD
-Quando uma bela está com uma fera, isso faz
-eu terrivelmente louco.
+yyo te devuelvo tu ciénaga.
 
-HOMENS FELIZES
-Ele é louco, ele é muito, muito louco.
+¿Justo como la tenía?
 
+Igual hasta el más mínimo hongo
 
-ROBIN HOOD
-Eu vou pegar minha lâmina e forçá-la
-seu coração, mantenha seus olhos em mim, meninos
-pois vou começar...
+cubierto de cieno.
 
-Há um grunhido quando Fiona desce do galho da árvore e
-deixa Robin Hood inconsciente.
+¿Y los intrusos?
 
-FIONA
-Cara, isso foi irritante!
+Desaparecerán.
 
-Shrek olha para ela com admiração.
+¿Qué clase de cruzada?
 
-HOMEM ALEGRE
-Oh, seu pequeno- - (atira uma flecha em
-Fiona, mas ela sai do caminho)
+¿Vas a pelear contra un dragón...
 
+por una princesa para que
 
-A flecha voa em direção ao Burro que pula nos braços de Shrek para
-saia do caminho. A flecha continua a apenas ricochetear em uma árvore.
+Farquaad te dé tu ciénaga...
 
+que no tienes porque
 
-Outra sequência de luta começa e Fiona dá um grito de caratê e
-em seguida, passa a espancar os Merry Men. Há
-um momento 'Matrix' muito interessante aqui quando Fiona faz uma pausa
-no ar para arrumar o cabelo. Finalmente todos os Merry Men estão caídos,
-e Fiona começa a se afastar.
+él te la llenó de cosas raras?
 
-FIONA
-Vamos?
+Quizá haya una buena razón
 
-SHREK
-Segure o telefone. (deixa o Burro e começa
-andando atrás de Fiona) Oh! Ei, ei,
-Uau. Espere agora. De onde veio isso
-a partir de?
+por la que los burros no hablan.
 
-FIONA
-O que?
+No entiendo, Shrek. ¿Por qué
 
-SHREK
-Este! Ali atrás. Isso foi incrível!
-Onde você aprendeu aquilo?
+no le haces una cosa de ogro?
 
-FIONA
-Bem... (risos) quando se vive sozinho,
-uh, é preciso aprender essas coisas em
-caso haja um... (suspiros e pontos)
-há uma flecha na sua bunda!
+Ahórcalo, ataca su fortaleza,
 
-SHREK
-O que? (vira-se e olha) Oh, você faria
-Olhe para isso? (ele vai tirar
-mas vacila porque é macio)
+tritura sus huesos, algo de ogro.
 
+Ya sé. ¿Por qué no decapito
 
-FIONA
-Oh não. Isso é tudo minha culpa. Estou tão
-desculpe.
+un pueblo entero...
 
-BURRO
-(subindo) Por quê? O que há de errado?
+pongo sus cabezas en picas...
 
-FIONA
-Shrek está ferido.
+agarro un cuchillo,
 
-BURRO
-Shrek está ferido. Shrek está ferido? Oh não,
-Shrek vai morrer.
+les abro el bazo...
 
-SHREK
-Burro, estou bem.
+y me bebo sus fluidos corporales?
 
-BURRO
-Você não pode fazer isso comigo, Shrek. Eu estou
-muito jovem para morrer. Mantenha suas pernas
-elevado. Vire a cabeça e tosse.
-Alguém conhece o Heimlich?
+¿Te suena bien?
 
-FIONA
-BURRO! Acalmar. Se você quer ajudar
-Shrek, corra para a floresta e me encontre
-uma flor azul com espinhos vermelhos.
+No, la verdad, no.
 
-BURRO
-Flor azul, espinhos vermelhos. Ok, estou em
-isto. Flor azul, espinhos vermelhos. Não morra
-Shrek. Se você vir um longo túnel, fique
-longe da luz!
+Los ogros son más complejos
 
-SHREK E FIONA
-BURRO!
+de lo que la gente cree.
 
-BURRO
-Oh sim. Certo. Flor azul, espinhos vermelhos.
-(foge)
+¿Por ejemplo?
 
-SHREK
-Para que servem as flores?
+Bueno...
 
-FIONA
-(como é óbvio) Para se livrar
-de Burro.
+los ogros son como las cebollas.
 
-SHREK
-Ah.
+- ¿Apestan?
 
-FIONA
-Agora você fica parado, e eu vou puxar isso
-coisa fora. (dá a seta um pouco
-puxar)
+- Sí-- ¡no!
 
-SHREK
-(salta para longe) Ai! Ei! Fácil com o
-puxando.
+- Te hacen llorar.
 
-Enquanto eles continuam a falar, Fiona continua indo atrás da flecha e
-Shrek continua se esquivando das mãos dela.
+- No.
 
-FIONA
-Sinto muito, mas tem que sair.
+Los dejas en el sol
 
+y se vuelven marrones.
 
-SHREK
-Não, é macio.
+¡No! ¡Capas!
 
-FIONA
-Agora, espere.
+Las cebollas tienen capas.
 
-SHREK
-O que você está fazendo é o oposto de
-ajuda.
+Los ogros tienen capas.
 
-FIONA
-Não se mova.
+Las cebollas tienen capas.
 
-SHREK
-Olha, tempo limite.
+¿Entiendes?
 
-FIONA
-Você... (grunhe enquanto Shrek coloca seu
-mão sobre seu rosto para impedi-la de
-chegando na flecha) Ok. Fazer o que
-você propõe que fazemos?
+Los dos tenemos capas.
 
-EM OUTRO LUGAR
+Ah. Los dos tienen capas,
 
-Burro ainda está procurando a flor especial.
+No a todos les gusta la cebolla.
 
-BURRO
-Flor azul, espinhos vermelhos. Flor-azul,
-espinhos vermelhos. Flor azul, espinhos vermelhos.
-Isso seria muito mais fácil se eu não fosse
-daltônico! Flor azul, espinhos vermelhos.
+¡Pasteles! A todos los gustan
 
+y los pasteles tienen capas.
 
-SHREK
-(os) Ai!
+A mí me importa poco
 
-BURRO
-Espera, Shrek! Estou chegando'! (rasga um
-flor de um arbusto próximo que simplesmente acontece
-ser uma flor azul com espinhos vermelhos)
+lo que les guste a todos.
 
+Los ogros no son como los pasteles.
 
-O CAMINHO DA FLORESTA
+¿Sabes qué más les gusta a todos?
 
-SHREK
-Ai! Não é bom.
+Los milhojas.
 
-FIONA
-OK. OK. Quase posso ver a cabeça.
-(Shrek grunhe enquanto ela puxa) É só
-cerca de...
+¿A quién has oído decir
 
-SHREK
-Ai! Ah! (ele sacode e consegue cair
-com Fiona em cima dele)
+""No me gustan los milhojas``?
 
-BURRO
-Aham.
+Son deliciosos.
 
-SHREK
-(jogando Fiona de cima dele) Nada
-aconteceu. Estávamos apenas, uh - -
+¡Que no, bestia de carga tarada,
 
-BURRO
-Olha, se você quisesse ficar sozinho, tudo
-você tinha que fazer era perguntar. Ok?
+irritantey miniatura!
 
-SHREK
-Oh vamos lá! Essa é a última coisa em
-minha mente. A princesa aqui era apenas-
-- (Fiona puxa a flecha) Ugh! (ele
-se vira para olhar para Fiona que segura
-a flecha com um sorriso) Ai!
+¡Los ogros son como las cebollas!
 
-BURRO
-Ei, o que é isso? (riso nervoso)
-Isso é... isso é sangue?
+¡Punto final! Adiosito.
 
-Burro desmaia. Shrek se aproxima e o pega enquanto eles continuam
-no caminho deles.
+Nos vemos.
 
-Há uma montagem de cenas enquanto o grupo volta para DuLoc.
-Shrek rastejando até o topo de uma árvore para fazê-la cair sobre um
-pequeno riacho para que Fiona não se molhe. Shrek então se levanta como
-Burro está prestes a atravessar a árvore e a árvore balança para trás
-em sua posição vertical e Burro voa. Shrek golpeando
-e um monte de moscas e mosquitos. Fiona pega uma teia de aranha próxima
-que está em um galho de árvore e corre pelo campo balançando
-ao redor para pegar os insetos. Ela então entrega para Shrek, que começa
-comendo como se fosse um deleite. Enquanto ele se afasta, ela lambe os dedos.
-Shrek pegando um sapo e explodindo como um balão e apresentando
-para Fiona. Fiona pegando uma cobra, explodindo, formando
-transformá-lo em um animal balão e apresentá-lo a Shrek. O grupo
-chegando a um moinho de vento que fica perto de DuLoc.
+Quizá los milhojas sean lo más
 
-MOINHO DE VENTO
+delicioso que hay en el planeta.
 
-SHREK
-Aí está, princesa. Seu futuro espera
-vocês.
+Creo que me gustaba
 
-FIONA
-Isso é DuLoc?
+más que tararearas.
 
-BURRO
-Sim, eu sei. Você sabe, Shrek pensa
-Lord Farquaad está compensando algo,
-o que eu acho que significa que ele realmente tem um... (Shrek
-pisa em seu casco) Ai!
+¿No tienes un pañuelo o algo?
 
-SHREK
-Hum, eu, uh- - Acho melhor nos mudarmos
-sobre.
+Nada más decir milhojas hizo
 
-FIONA
-Claro. Mas, Shrek? Estou - - Estou preocupado
-sobre Burro.
+que se me cayera la baba.
 
-SHREK
-O que?
+Shrek, ¿fuiste tú?
 
-FIONA
-Quero dizer, olhe para ele. Ele não parece
-tão bom.
+Tienes que avisar
 
-BURRO
-O que você está falando? Estou bem.
+antes de echarte uno.
 
+Créeme, Burro, si hubiera sidoyo,
 
-FIONA
-(ajoelha-se para olhá-lo nos olhos) Isso é
-o que eles sempre dizem, e depois
-coisa que você sabe, você está de costas.
-(pausa) Morto.
+estarías muerto.
 
-SHREK
-Você sabe, ela está certa. Você está horrível.
-Você quer sentar?
+Es azufre.
 
-FIONA
-Uh, você sabe, eu vou fazer um chá para você.
+Ya debemos de estar cerca.
 
+Sí, seguro. Azufre.
 
-BURRO
-Eu não queria dizer nada, mas eu
-tenho essa pontada no pescoço, e quando
-Eu viro minha cabeça assim, olha, (vira
-seu pescoço de uma forma muito afiada até que seu
-cabeça está completamente de lado) Ow! Ver?
+Yo sé lo que olíy no fue azufre.
 
+Aunque sí tiene que ver
 
-SHREK
-Quem está com fome? Vou arranjar-nos um jantar.
+con ""sufre``.
 
+Sí, es grande.
 
-FIONA
-Eu vou pegar a lenha.
+Pero mira la ubicación.
 
-BURRO
-Ei, onde você vai? Oh, cara, eu não posso
-sinta meus dedos! (olha para baixo e grita)
-Eu não tenho dedos! acho que preciso
-um abraço.
+Shrek, ¿te acuerdas
 
-PÔR DO SOL
+de lo que dijiste...
 
-Shrek acendeu uma fogueira e está cozinhando o resto do jantar enquanto
-Fiona come.
+que los ogros tienen capas?
 
-FIONA
-Mmm. Isso é bom. Isto é muito bom.
-O que é isto?
+Pues tengo que confesarte algo.
 
-SHREK
-Uh, rato de erva daninha. Estilo rotisserie.
+Los burros no tienen capas.
 
-FIONA
-Sem brincadeiras. Bem, isso é delicioso.
+Traemos el miedo en la manga.
 
+Los burros no usan mangas.
 
-SHREK
-Bem, eles também são ótimos em ensopados. Agora,
-Eu não quero me gabar, mas eu faço uma média
-guisado de rato de erva daninha. (risos)
+Sabes a lo que me refiero.
 
-Fiona olha para DuLoc e suspira.
+¿Le tienes miedo a las alturas?
 
-FIONA
-Acho que vou jantar um pouco diferente
-amanhã à noite.
+¡No, sólo me siento incómodo
 
-SHREK
-Talvez você possa vir me visitar no pântano
-às vezes. Eu vou cozinhar todo tipo de coisa
-para voce. Sopa de sapo do pântano, tártaro de olho de peixe
-- - O que você disser.
+de andar en...
 
-FIONA
-(sorri) Eu gostaria disso.
+un puente frágil sobre lava!
 
-Eles sorriem um para o outro.
+Por favor, Burro.
 
-SHREK
-Hum, princesa?
+Yo voy a estar aquí,junto a ti...
 
-FIONA
-Sim, Shrek?
+para darte apoyo emocional.
 
-SHREK
-Eu, hum, eu estava me perguntando... você está... (suspiros)
-Você vai comer aquilo?
+Encararemos estojuntos,
 
-BURRO
-(risos) Cara, isso não é romântico?
-Basta olhar para aquele pôr do sol.
+pasito a pasito.
 
-FIONA
-(salta) Pôr do sol? Oh não! quero dizer, é
-tarde. E-É muito tarde.
+- ¿De veras?
 
-SHREK
-O que?
+- De veras, de veras.
 
-BURRO
-Espere um minuto. Eu vejo o que está acontecendo
-aqui. Você tem medo do escuro, não tem
-vocês?
+Me haces sentir mucho mejor.
 
-FIONA
-Sim! Sim é isso. Eu estou aterrorizado.
-Sabe, é melhor eu entrar.
+Sólo sigue caminando
 
-BURRO
-Não se sinta mal, princesa. Eu costumava
-tenha medo do escuro também, até que -
-- Ei, não, espere. ainda tenho medo
-o escuro.
+y no mires hacia abajo.
 
-Shrek suspira
+No mires hacia abajo.
 
-FIONA
-Boa noite.
+Camina. No mires abajo.
 
-SHREK
-Boa noite.
+No mires abajo.
 
-Fiona entra no moinho de vento e fecha a porta. Aparência de burro
-em Shrek com um novo olhar.
+Camina. No mires abajo.
 
-BURRO
-Ah! Agora eu realmente vejo o que está acontecendo
-aqui.
+¡Shrek!
 
-SHREK
-Ah, do que você está falando?
+¡Estoy mirando hacia abajo!
 
-BURRO
-Eu nem quero ouvir. Olha, eu estou
-um animal, e eu tenho instintos. E
-Eu sei que vocês dois estavam cavando em cada um
-outro. Eu podia sentir isso.
+¡No puedo!
 
-SHREK
-Você é louco. eu só estou trazendo ela
-de volta ao Farquaad.
+¡Me quiero bajar!
 
-BURRO
-Ah, vamos, Shrek. Acorde e cheire
-os feromônios. Basta entrar e dizer
-ela como você se sente.
+Ya estás a mitad del camino.
 
-SHREK
-Eu... - Não há nada para contar. Além do mais,
-mesmo se eu dissesse a ela que, bem, você
-sei - - e não estou dizendo que sei porque
-Eu não - - ela é uma princesa, e eu sou
-- -
+¡Pero esa mitad es segura!
 
-BURRO
-Um ogro?
+Bueno, no tengo tiempo para esto.
 
-SHREK
-Sim. Um ogro.
+Tú regresa.
 
-BURRO
-Ei, onde você vai?
+¡Shrek! ¡Espera!
 
-SHREK
-Para pegar... mova lenha. (suspiros)
+Vamos a bailar. Ven acá.
 
-Burro olha para a grande pilha de lenha já lá
-é.
+¡No hagas eso!
 
-LAPSO DE TEMPO
+Perdón. ¿Que no haga qué?
 
-Burro abre a porta do Moinho de Vento e entra.
-nenhum lugar para ser visto.
+¿Esto?
 
-BURRO
-Princesa? Princesa Fiona? Princesa,
-Onde você está? Princesa?
+¡Sí, eso!
 
-Fiona olha para Burro das sombras, mas não podemos vê-la.
+¿Sí? Sí. Hazlo. Bueno.
 
+¡No, Shrek!
 
-BURRO
-É muito assustador aqui. eu não estou jogando
-sem jogos.
+-¡Ya basta!
 
-De repente, Fiona cai do parapeito. Ela se levanta só que ela não
-parecer ela mesma. Ela parece um ogro e o Burro começa a enlouquecer
-Fora.
+-¡Dijiste que lo hiciera!
 
-BURRO
-Aah!
+¡Me voy a morir!
 
-FIONA
-Oh não!
+¡Me voy a morir! ¡Shrek!
 
-BURRO
-Nenhuma ajuda!
+Eso es, Burro. Eso es.
 
-FIONA
-Shh!
+Genial.
 
-BURRO
-Shrek! Shrek! Shrek!
+¿Dónde está la maravilla
 
-FIONA
-Não, está tudo bem. Está bem.
+que escupe fuego?
 
-BURRO
-O que você fez com a princesa?
+Dentro, esperando
 
+a que la rescatemos.
 
-FIONA
-Burro, eu sou a princesa.
+Me refería al dragón, Shrek.
 
-BURRO
-Aah!
+- ¿Tienes miedo?
 
-FIONA
-Sou eu, neste corpo.
+- No.
 
-BURRO
-Oh meu Deus! Você comeu a princesa. (para
-seu estômago) Você pode me ouvir?
+Pero, silencio.
 
-FIONA
-BURRO!
+Qué bien. Yo tampoco.
 
-BURRO
-(ainda apontada para o estômago dela) Ouça,
-continue respirando! vou tirar você de
-lá!
+No tiene nada de malo tener miedo.
 
-FIONA
-Não!
+El miedo es una respuesta sensata
 
-BURRO
-Shrek! Shrek! Shrek!
+ante lo desconocido.
 
-FIONA
-Shh.
+Y a lo peligroso.
 
-BURRO
-Shrek!
+Si un dragón escupe fuego
 
-FIONA
-Este sou eu.
+y come caballeros y escupe fuego...
 
-Burro olha nos olhos dela enquanto ela acaricia seu focinho, e ele se acalma
-baixa.
+el que tengas un poco de miedo
 
-BURRO
-Princesa? O que aconteceu com você? Você é,
-uh, uh, uh, diferente.
+no significa que seas cobarde.
 
-FIONA
-Eu sou feio, ok?
+Yo sé que no soy un cobarde.
 
-BURRO
-Bem, sim! Foi algo que você comeu?
-Porque eu disse ao Shrek que aqueles ratos eram um
-péssima ideia. Você é o que você come, eu disse.
-Agora - -
+Burro, dos cosas, ¿está bien?
 
-FIONA
-Não. Eu - - Estou assim há tanto tempo
-como me lembro.
+Cállate. La boca.
 
-BURRO
-O que você quer dizer? Olha, eu nunca
-vi você assim antes.
+Ve a buscar unas escaleras.
 
-FIONA
-Isso só acontece quando o sol se põe.
-"À noite de um jeito, de dia de outro.
-será a norma... até que você encontre
-primeiro beijo do amor verdadeiro... e depois tome
-a verdadeira forma do amor."
+¿No estamos buscando a la princesa?
 
-BURRO
-Isso é lindo. eu não sabia
-você escreveu poesia.
+Estará arriba de las escaleras,
 
-FIONA
-É um feitiço. (suspiro) Quando eu era um pouco
-menina, uma bruxa lançou um feitiço em mim. Todo
-noite eu me tornei isso. Este horrível,
-fera feia! Eu fui colocado em uma torre
-para esperar o dia em que meu verdadeiro amor
-resgate-me. É por isso que eu tenho que me casar
-Lord Farquaad amanhã antes do sol
-define e ele me vê assim. (começa
-chorar)
+en la torre más alta.
 
-BURRO
-Tudo bem, tudo bem. Acalmar. Olhar,
-não é tão ruim. Você não é tão feio.
-Bem, eu não vou mentir. Você é feio.
-Mas você só fica assim à noite.
-Shrek é feio 24-7.
+¿Cómo sabes?
 
-FIONA
-Mas Burro, eu sou uma princesa, e isso
-não é como uma princesa deve ser.
+Lo leí una vez en un libro.
 
+Perfecto. Tú te encargas
 
-BURRO
-Princesa, que tal se você não se casar
-Farquaad?
+del dragón, yo, de las escaleras.
 
-FIONA
-Eu tenho que. Apenas o beijo do meu verdadeiro amor
-pode quebrar o feitiço.
+Voy a encontrar esas escaleras.
 
-BURRO
-Mas, você sabe, hum, você é uma espécie de
-orge, e Shrek - - bem, você tem um
-muito em comum.
+Y las voy a vencer. Vas a ver.
 
-FIONA
-Shrek?
+Tomaré medidas drásticas.
 
-FORA
+No se metan conmigo,
 
-Shrek está caminhando em direção ao moinho de vento com um girassol em seu
-mão.
+soy el ""escalasno``.
 
-SHREK
-(para si mesmo) Princesa, eu - - Uh, como vai
-vai, em primeiro lugar? Bom? Hum, bom
-para mim também. Estou bem. eu vi essa flor
-e pensei em você porque é bonito
-e - - bem, eu realmente não gosto disso,
-mas eu pensei que você poderia gostar porque
-você é bonita. Mas eu gosto de você de qualquer maneira.
-Eu... - uh, uh... (suspiros) Estou com problemas.
-Ok, aqui vamos nós.
+Amo de las escaleras.
 
-Ele caminha até a porta e para do lado de fora quando ouve Burro
-e Fiona conversando.
+Ojalá hubiera un escalón,
 
-FIONA
-(os) Eu não posso simplesmente casar com quem eu quiser.
-Dê uma boa olhada em mim, Burro. Quero dizer,
-realmente, quem pode amar uma fera assim
-horrível e feio? "Princesa" e "feio"
-não vá junto. Por isso não consigo
-fique aqui com Shrek.
+le daría una buena pisada.
 
-Shrek recua em estado de choque.
+Ahí está la princesa.
 
-FIONA
-(os) Minha única chance de viver feliz
-para sempre é me casar com meu verdadeiro amor.
+¿Pero dónde está el...?
 
+¡Dragón!
 
-Shrek solta um suspiro profundo. Ele joga a flor no chão e caminha
-um jeito.
+¡Burro, cuidado!
 
-LADO DE DENTRO
+¡Te agarré!
 
-FIONA
-Você não vê, Burro? Isso é apenas como
-tem que ser. É a única maneira de quebrar
-o feitiço.
+No. ¡Ay, ay, ay!
 
-BURRO
-Você pelo menos tem que dizer a verdade ao Shrek.
+Qué dientes tan grandes tienes.
 
+Dientes blancos, brillantes.
 
-FIONA
-Não! Você não pode respirar uma palavra. Ninguém
-deve sempre saber.
+Tu comida te lo ha de decir
 
-BURRO
-Qual é o ponto de ser capaz de falar
-se você tem que manter segredos?
+con frecuencia.
 
-FIONA
-Prometa que não vai contar. Promessa!
+Les debes poner blanqueador, porque
 
-BURRO
-Tudo bem, tudo bem. Eu não vou dizer a ele.
-Mas voce devia. (sai para fora) eu só
-saiba antes que isso acabe, eu vou
-precisa de muita terapia séria.
-Olhe para o meu olho trêmulo.
+tienes una sonrisa impactante.
 
-Fiona sai pela porta e o observa ir embora. Ela parece
-para baixo e avista o girassol. Ela pega antes de voltar
-dentro do moinho de vento.
+¿Detecto un poco de sabor
 
-MANHÃ
+a menta fresca? ¿Sabes qué más?
 
-Burro está dormindo. Shrek está longe de ser visto. Fiona ainda
-acordado. Ela está arrancando pétalas do girassol.
+¿Sabes qué más?
 
-FIONA
-Eu digo a ele, eu digo a ele que não. digo a ele,
-Eu digo a ele que não. Eu digo a ele. (ela rapidamente
-corre para a porta e sai) Shrek!
-Shrek, tem algo que eu quero... (ela
-olha e vê o sol nascente, e como
-o sol nasce no céu ela volta
-em um humano.)
+Eres-- ¡eres una dragona!
 
-Assim que ela olha para o sol, ela vê Shrek caminhando em direção
-sua.
+Digo, claro que eres
 
-FIONA
-Shrek. Você está bem?
+una dragona, porque...
 
-SHREK
-Perfeito! Nunca estive melhor.
+simplemente apestas
 
-FIONA
-Eu - - Eu não - - Há algo
-Eu tenho que te dizer.
+a belleza femenina.
 
-SHREK
-Você não precisa me dizer nada,
-Princesa. Ouvi o suficiente ontem à noite.
+¿Qué te pasa?
 
+¿Se te metió algo en el ojo?
 
-FIONA
-Você ouviu o que eu disse?
+Me encantaría quedarme,
 
-SHREK
-Toda palavra.
+pero tengo asma...
 
-FIONA
-Achei que você entenderia.
+y esto no va a funcionar
 
-SHREK
-Ah, Eu entendi. Como você disse: "Quem
-poderia amar uma fera horrível e feia?"
+si sigues echando anillos de humo.
 
+¡Shrek!
 
-FIONA
-Mas eu pensei que não importaria para
-vocês.
+¡No! ¡Shrek! ¡Shrek! ¡Shrek!
 
-SHREK
-Sim? Bem, ele faz. (Fiona olha para
-ele em choque. Ele olha além dela e
-vê um grupo se aproximando.) Ah, certo
-na hora. Princesa, eu te trouxe
-um pouco de algo.
+- ¡Despierta!
 
-Farquaad chegou com um grupo de seus homens. Ele parece muito real
-sentado em seu cavalo. Você nunca adivinharia que ele é apenas
-como 3 metros de altura. Burro acorda com um bocejo enquanto os soldados
-marchar.
+- ¿Qué?
 
-BURRO
-O que eu perdi? O que eu perdi? (pontos
-os soldados) (abafado) Quem disse isso?
-Não pode ter sido o burro.
+¿Eres la princesa Fiona?
 
-FARQUAAD
+Lo soy.
+
+Esperando a que
+
+un osado caballero me rescate.
+
+Qué lindo. ¡Vámonos!
+
+¡Pero esperad, Sir Caballero!
+
+Este ""sed``
+
+nuestro primer encuentro.
+
+¿No debería ser
+
+un momento maravilloso, romántico?
+
+Disculpe, señora.
+
+No hay tiempo.
+
+¿Qué estáis haciendo?
+
+¡Deberíais sacarme volando...
+
+por aquella ventana,
+
+a vuestro valiente corcel!
+
+Tuvo mucho tiempo
+
+para planear esto, ¿verdad?
+
+Tenemos que saborear este momento.
+
+Podríais recitarme un poema épico.
+
+¿Una balada? ¿Un soneto?
+
+- ¿Un poema humorístico? ¡Algo!
+
+- Yo creo que no.
+
+¿Puedo, al menos,
+
+conocer el nombre de mi campeón?
+
+Ah-- Shrek.
+
+Sir Shrek...
+
+os suplico que aceptéis
+
+este recuerdo...
+
+como muestra de mi gratitud.
+
+Gracias.
+
+¿No mataste al dragón?
+
+Está en mi lista de pendientes.
+
+¡Vámonos!
+
+Pero esto no está bien.
+
+Deberías ir...
+
+espada desenfundada y estandarte
+
+ondeando, como esos caballeros.
+
+Justo antes de que se incendiaran.
+
+Eso no es lo importante.
+
+¿A dónde vas?
+
+La salida está allá.
+
+Qué burro, lo tengo que salvar.
+
+¿Qué clase de caballero eres?
+
+Soy único.
+
+Más despacio.
+
+Es más sano conocerse poco a poco,
+
+durante algún tiempo.
+
+Seré chapado a la antigua,
+
+pero no quiero precipitarmey...
+
+empezar una relación física.
+
+Un compromiso de esta...
+
+magnitud,
+
+era la palabra que estaba buscando.
+
+¡Eso es contacto físico indeseado!
+
+¿Qué estás haciendo?
+
+Bueno, hay que dar marcha atrás
+
+y avanzar paso por paso.
+
+Necesitamos conocernos como amigos.
+
+O como amigos por correspondencia.
+
+Yo viajo mucho,
+
+pero me encanta recibir tarjetas.
+
+Me encantaría quedarme, pero...
+
+Me la vas arrancar.
+
+¿Qué vas a hacer con eso?
+
+Ah, no, eso no.
+
+¡No, no, no!
+
+- Hola, princesa.
+
+- ¡Habla!
+
+Sí. Lo difícil es hacer
+
+que se calle.
+
+¡Ustedes dos,
+
+váyanse a la salida!
+
+Yo me encargo del dragón.
+
+¡Corran!
+
+¡Lo lograste!
+
+¡Me rescataste! ¡Eres increíble!
+
+¡Eres maravilloso! Eres...
+
+un poco fuera de lo normal,
+
+lo tengo que admitir, pero...
+
+vuestra hazaña es grande
+
+yvuestro corazón es puro.
+
+Estoy eternamente agradecida.
+
+¿Y dónde estaría tan valiente
+
+caballero sin su noble corcel?
+
+¿Oíste? Me llamó ""noble corcel``.
+
+Cree que soy un corcel.
+
+Ganó la batalla. Se puede quitar
+
+el casco, buen Sir Caballero.
+
+Ah, no.
+
+¿Por qué no?
+
+Tengo pelo de casco.
+
+Por favor, no sabéis cuánto
+
+deseo vervuestra cara.
+
+No, parecedme que no.
+
+Pero ¿cómo me vas a besar?
+
+Eso no era parte del trabajo.
+
+Quizá es una prestación.
+
+No, es el destino.
+
+Debes de saber cómo acaba.
+
+Una princesa encerrada en una torre
+
+y acosada por un dragón...
+
+es rescatada
+
+por un valiente caballero...
+
+y luego comparten el primer beso
+
+del verdadero amor.
+
+¿Con Shrek?
+
+¿Usted cree--
+
+Un segundo. ¿Cree que Shrek
+
+es su verdadero amor?
+
+¡Pues-- sí!
+
+¡Cree que Shrek es
+
+su verdadero amor!
+
+¿Qué tiene de chistoso?
+
+Digamos nada más que no soy
+
+de su tipo, ¿está bien?
+
+Claro que eres de mi tipo.
+
+Tú me rescataste.
+
+Vamos, quítate el casco.
+
+No es buena idea.
+
+- Quítate el casco.
+
+- Me niego.
+
+- Quítatelo.
+
+- ¡No!
+
+- ¡Ahora mismo!
+
+- ¡Está bien! Calma.
+
+A sus órdenes, Su Alteza.
+
+Eres un-- un ogro.
+
+Usted estaba esperando
+
+al Príncipe Valiente.
+
+Pues, la verdad, sí.
+
+Ay, no.
+
+Esto está todo mal.
+
+Tú no deberías ser un ogro.
+
+Princesa, Lord Farquaad me mandó
+
+a rescatarla, ¿está claro?
+
+Él se quiere casar con usted.
+
+¿Por qué no me rescató él?
+
+Buena pregunta.
+
+Hágasela usted cuando lleguemos.
+
+Pero a mí me tiene que rescatar
+
+mi verdadero amor...
+
+no un ogroy su mascota.
+
+Hasta ahí llegó el ""noble corcel``.
+
+No me está facilitando mi trabajo.
+
+Disculpa, pero tu trabajo
+
+no es mi problema.
+
+Dile a Lord Farquaad que si quiere
+
+rescatarme como es debido...
+
+lo estaré esperando aquí.
+
+¡Oiga! Yo no soy recadero
+
+de nadie, ¿entiende?
+
+Soy un repartidor.
+
+No te atrevas.
+
+- ¿Vienes, Burro?
+
+- Pisándote la cola.
+
+¡Bájame o sufrirás
+
+las consecuencias!
+
+¡Esto no es digno! ¡Bájame!
+
+Ahí le va otra pregunta.
+
+Uno le gusta a una mujer,
+
+pero no es recíproco.
+
+¿Qué haces para no herirla
+
+y que no te carbonice?
+
+Nada más dile
+
+que no es tu verdadero amor.
+
+Todos saben lo que pasa
+
+cuando encuentras...
+
+Cuanto antes lleguemos, mejor.
+
+Le encantará, princesa.
+
+Es hermoso.
+
+¿Y qué tal mi futuro novio,
+
+Lord Farquaad? ¿Cómo es?
+
+Déjeme ponerlo así.
+
+Hombres de su estatura...
+
+sobresalen sólo por sus méritos.
+
+No sé, Shrek, algunos consideran
+
+pequeña su leyenda.
+
+Ya basta.
+
+Basta, los dos.
+
+Le tienen celos porquejamás podrán
+
+llegarle a los talones.
+
+Quizá tenga usted razón,
+
+princesa.
+
+Dejaré que usted nos mida
+
+cuando lo vea mañana.
+
+¿Mañana?
+
+¿Tanto vamos a tardar?
+
+¿No deberíamos acampar?
+
+No. Así tardaríamos más.
+
+- Podemos seguir avanzando.
+
+- Pero hay ladrones en el bosque.
+
+¡Tiempo fuera! La idea de acampar
+
+me está empezando a gustar.
+
+Por favor. Yo soy más temible que
+
+cualquier cosa que podamos hallar.
+
+¡Necesito un lugar
+
+para acampar ahora mismo!
+
+¡Oye, aquí!
+
+Podemos encontrar algo mejor.
+
+Esto no es apropiado
+
+para una princesa.
+
+Es perfecto. Sólo necesita
+
+unos toques hogareños.
+
+¿Toques hogareños?
+
+¿Como cuáles?
+
+¿Una puerta?
+
+Caballeros, os deseo buenas noches.
+
+¿Le leo un cuento
+
+para que se duerma?
+
+¡Dije que buenas noches!
+
+¿Qué estás haciendo?
+
+Nada más--ya sabes.
+
+Por favor, estaba bromeando.
+
+Y ése.
+
+Ése es Throwback, él único ogro que
+
+escupió sobre tres campos de trigo.
+
+Seguro. Sí.
+
+¿Puedes ver mi futuro
+
+en las estrellas?
+
+Las estrellas no dicen el futuro,
+
+nos cuentan historias.
+
+Mira, ahí está Bloodnut el Gaseoso.
+
+¿Adivina por qué era famoso?
+
+Estás inventando todo.
+
+No, mira. Ahí está.
+
+Y ahí están los cazadores
+
+huyendo de su pestilencia.
+
+Sólo son un montón de puntitos.
+
+Burro, a veces las cosas
+
+son más de lo que aparentan.
+
+Olvídalo.
+
+¿Qué vamos a hacer
+
+cuando nos den nuestra ciénaga?
+
+¿""Nuestra`` ciénaga?
+
+Cuando acabemos de rescatar
+
+a la princesa.
+
+¿""Acabemos``? Burro, nada de ""nos``.
+
+Nada de ""nuestra``. Sólo soy...
+
+yo con mi ciénaga.
+
+Y lo primero que haré es construir
+
+un muro alrededor de mi tierra.
+
+Me heriste hondo, Shrek.
+
+Me acabas de herir en lo profundo.
+
+Creo que eso del muro es una forma
+
+de no dejar entrar a alguien.
+
+No. ¿Tú crees?
+
+- ¿Ocultas algo?
+
+- Olvídalo, Burro.
+
+Ésta es otra de esas cosas
+
+como lo de la cebolla.
+
+No, ésta es otra de esas cosas
+
+como de ""cambio de tema``.
+
+- ¿Por qué no lo quieres hablar?
+
+- ¿Por qué tú sí quieres?
+
+- ¿Por qué te bloqueas?
+
+- Yo, no.
+
+- Sí, estás bloqueado.
+
+- Te lo advierto.
+
+¿Quién no quieres que entre?
+
+¡Todos! ¿Contento?
+
+Ahora sí,
+
+estamos empezando a avanzar.
+
+¡Ay, por el amor de Dios!
+
+¿Cuál es tu problema?
+
+¿Qué tienes contra el mundo?
+
+Yo no tengo problemas. El mundo es
+
+el que tiene un problema conmigo.
+
+La gente, apenas me ve, empieza:
+
+""¡Ay! ¡Auxilio! ¡Corran!``
+
+""¡Un gigantesco ogro estúpido!``
+
+Mejuzgan sin siquiera conocerme.
+
+Por eso prefiero estar solo.
+
+Cuando te conocí, yo no pensé que
+
+eras un gigantesco ogro estúpido.
+
+Sí, ya lo sé.
+
+Oye, ¿hay burros allá arriba?
+
+Bueno, está Parlanchín...
+
+el Pequeñoy Molesto.
+
+Está bien, ya lo veo. El grande,
+
+brillante de ahí, ¿cierto?
+
+- Ésa es la luna.
+
+- Ah, bueno.
+
+Otra vez.
+
+Enséñamela otra vez.
+
+Espejo, espejo, muéstramela.
+
+Muéstrame a la princesa.
+
+Perfecto.
+
+Sí, ya sabes que así me gusta.
+
+Nena, ven y móntame.
+
+Burro, despierta.
+
+Despierta.
+
+Buenos días.
+
+¿Cómo les gustan los huevos?
+
+¡Buenos días, princesa!
+
+¿Qué está haciendo?
+
+Ayer empezamos con el pie izquierdo
+
+y quise reparar el daño.
+
+Digo, después de todo,
+
+sí me rescataste.
+
+Gracias.
+
+Coman. Tenemos un día importante
+
+por delante.
+
+- ¡Shrek!
+
+- ¿Qué? Es un cumplido.
+
+Mejor afuera que adentro, digoyo.
+
+Así no se porta uno
+
+enfrente de una princesa.
+
+Gracias.
+
+Ella es tan grosera como tú.
+
+¿Sabe qué? No es usted
+
+exactamente lo que me esperaba.
+
+Quizá no deberíasjuzgar
+
+a la gente antes de conocerla.
+
+¡Laliberté!
+
+¡Princesa!
+
+-¿Qué hace?
+
+-¡Calma, chérie, soy su salvador!
+
+Y la voy a rescatar
+
+de esa cosa verde...
+
+de esa bestia.
+
+¡Ésa es mi princesa!
+
+¡Vey búscate la tuya!
+
+¡Por favor, monstruo!
+
+¿No ves que estoy ocupado?
+
+Mira, amigo,
+
+no sé quién te crees que eres...
+
+¡Por supuesto! ¡Qué descortés!
+
+Por favor permítame presentarme.
+
+¡Hombres Alegres!
+
+Leroboalrico
+
+Le doyalnecesitado
+
+-Agarra unporcentaje
+
+- Peronosoyavaro
+
+Rescatoa damiselas
+
+conmiaptitud
+
+Qué tipazo
+
+Monsieur Hood
+
+A bailar.
+
+Megustanlaspeleas
+
+ylas criadaspícaras
+
+- Osea, legusta la--
+
+- Buenapaga
+
+Cuando un ogro ocultoagarra
+
+a una dama en el-- quémal
+
+Estámal
+
+Verunabellayunabestia
+
+mehace enojar
+
+Lohace enojarde verdad
+
+Agarromiespada
+
+lo voyaatravesar
+
+Nomepierdan de vista, chicos
+
+porque voya empezar
+
+Qué cosa tan molesta.
+
+¡Pequeña...!
+
+¿Nos vamos?
+
+Un momento.
+
+Momento, momento, espera.
+
+¿De dónde salió eso?
+
+Eso. Allá atrás.
+
+¡Estuvo increíble!
+
+¿Dónde aprendiste eso?
+
+Cuando una vive sola...
+
+tiene que aprender
+
+esas cosas en caso de que...
+
+¡Traes una flecha en el trasero!
+
+Mira eso.
+
+Todo ha sido por mi culpa.
+
+Perdóname.
+
+- ¿Qué pasa?
+
+- Shrek está herido.
+
+¿Shrek está herido?
+
+¡No, Shrek se va a morir!
+
+Burro, estoy bien.
+
+No, soy muyjoven para que mueras.
+
+Alza las piernas.
+
+¡Voltea la cabeza y tose,
+
+la Heimlich!
+
+¡Burro! ¡Cálmate!
+
+Si quieres ayudar a Shrek, tráeme
+
+una flor azul con espinas rojas.
+
+Flor azul, espinas rojas.
+
+Me encargaré de eso.
+
+¡No te mueras, Shrek! ¡Si ves un
+
+túnel largo, no vayas hacia la luz!
+
+- ¡Burro!
+
+- Cierto. Flor azul, espinas rojas.
+
+- ¿Para qué son las flores?
+
+- Para deshacerme de Burro.
+
+Quédate quieto
+
+y te voy a sacar esto.
+
+¡Cuidado con la sacada!
+
+Perdón, pero tiene que salir.
+
+Ahora...
+
+No, me duele.
+
+Está haciendo
+
+lo opuesto de ayudarme.
+
+Tiempo fuera.
+
+Está bien.
+
+¿Qué propones tú que hagamos?
+
+Flor azul, espinas rojas.
+
+Flor azul, espinas rojas.
+
+¡Esto sería mucho más fácil
+
+si no fuera yo daltónico!
+
+¡Aguanta, Shrek!
+
+¡Ya voy!
+
+No va bien.
+
+Bueno, ya casi veo la cabeza.
+
+No pasó nada. Sólo estábamos--
+
+Si querían estar solos,
+
+nada más tenían que pedírmelo.
+
+¡Por favor!
+
+Eso es lo último que me interesa.
+
+La princesa nada más estaba--
+
+¡Ay!
+
+Oiga, ¿qué es eso?
+
+¿Es sangre?
+
+Ahí está, princesa.
+
+Su futuro la espera.
+
+¿Eso es DuLoc?
+
+Shrek piensa que Lord Farquaad
+
+está compensando por algo.
+
+Creo que significa
+
+que tiene un...
+
+Bueno, supongo que más vale
+
+que sigamos adelante.
+
+Seguro.
+
+Pero-- ¿Shrek?
+
+Estoy-- estoy preocupada por Burro.
+
+Digo, míralo.
+
+No se ve muy bien.
+
+¿Qué? Estoy perfectamente.
+
+Eso es lo que todos dicen
+
+y luego acaban boca arriba.
+
+Muertos.
+
+Tiene razón. Te ves espantosamente
+
+mal. ¿Quieres sentarte?
+
+Voy a hacer té.
+
+Bueno, tengo una punzada
+
+en el cuello.
+
+Cuando volteo así, ¡ay! ¿Ven?
+
+- ¿Tienen hambre? Voy por la cena.
+
+- Yo traeré leña.
+
+Oigan, ¿a dónde van?
+
+Dios mío,
+
+¡no siento los dedos de los pies!
+
+¡No tengo dedos en los pies!
+
+¡Creo que necesito un abrazo!
+
+Esto está rico.
+
+Está muy rico.
+
+- ¿Qué es?
+
+- Rata de campo.
+
+Rostizada.
+
+¿De verdad?
+
+Pues está deliciosa.
+
+También son muy ricas guisadas.
+
+No quiero presumir, pero hago
+
+un excelente guiso de rata.
+
+Creo que mañana en la noche
+
+estaré cenando un poco diferente.
+
+Quizá me pueda ir a visitar
+
+a la ciénaga algún día.
+
+Le cocinaré muchas cosas.
+
+Sopa de sapo, ojo de pescado
+
+a la tártara, ¡lo que Ud. diga!
+
+Me gustaría.
+
+¿Princesa?
+
+¿Sí, Shrek?
+
+Estaba pensando.
+
+¿Va a--
+
+¿Se va a comer eso?
+
+Caray, qué romántico es esto.
+
+Miren el ocaso.
+
+¿El ocaso? ¡Ay, ay, ay!
+
+Digo, ya es tarde.
+
+Ya es muy tarde.
+
+Un momento.
+
+Ya veo lo que está pasando aquí.
+
+¿Tiene miedo de la oscuridad?
+
+¡Sí! Eso es. Me aterra.
+
+Más vale que me meta.
+
+No se sienta mal. A mí también
+
+me daba miedo, hasta que--
+
+Un momento. A mí todavía
+
+me da miedo la oscuridad
+
+Buenas noches.
+
+Buenas noches.
+
+Ya veo lo que está pasando.
+
+¿De qué hablas?
+
+Soy un animal y tengo instintos.
+
+Sé que los dos se atraen. Perdón.
+
+Estás loco. Sólo se la estoy
+
+llevando a Farquaad.
+
+Por favor. Despierta y huele
+
+las feromonas. Dile lo que sientes.
+
+No hay nada que decir.
+
+Además, aunque se lo dijera...
+
+bueno, no estoy diciendo
+
+que la quiero. Porque no.
+
+Ella es una princesa yyo soy--
+
+¿Un ogro?
+
+Sí, un ogro.
+
+- ¿A dónde vas?
+
+- A buscar más leña.
+
+¿Princesa?
+
+¿Princesa Fiona?
+
+¿Princesa? ¿Dónde está?
+
+¿Princesa?
+
+Está feo acá dentro.
+
+No estoyjugando.
+
+¡No! ¡Auxilio! ¡Shrek!
+
+¡No! No pasa nada.
+
+¿Y la princesa?
+
+¡Burro! Yo soy la princesa.
+
+Soyyo, en este cuerpo.
+
+¡Dios mío!
+
+¡Te comiste a la princesa!
+
+¿Me oye?
+
+¡Siga respirando!
+
+¡La voy a sacar de ahí!
+
+¡Shrek! ¡Shrek!
+
+Soyyo.
+
+¿Princesa?
+
+¿Qué le pasó? Está...
+
+- diferente.
+
+- Estoy fea, ¿ya?
+
+¿Le cayó mal algo? Eso de comer
+
+ratas-- Uno es lo que come.
+
+¡No! He sido así
+
+desde que me acuerdo.
+
+Yojamás la había visto así.
+
+Sólo pasa cuando se pone el sol.
+
+""De noche de una manera
+
+De día, de otra.
+
+Ésa será la norma.``
+
+""Hasta encontrar el primer beso
+
+de tu verdadero amor.
+
+Entonces adoptarás,
+
+del verdadero amor, la forma.``
+
+Qué hermoso.
+
+No sabía que escribiera poesía.
+
+¡Es un hechizo!
+
+Cuando era niña,
+
+una bruja me hechizó.
+
+Todas las noches,
+
+me convierto en esto.
+
+¡En esta horrenda bestia!
+
+Estaba en una torre, esperando a
+
+que me rescatara mi verdadero amor.
+
+Por eso debo casarme
+
+con Lord Farquaad mañana...
+
+de día, antes de que me vea...
+
+así.
+
+Bueno, cálmese. No es tan grave.
+
+No es tan fea.
+
+Bueno, no le voy a mentir,
+
+sí es fea.
+
+Pero sólo se pone así de noche.
+
+Shrek siempre es feo.
+
+Pero, Burro, yo soy una princesa...
+
+¡y las princesas
+
+no deben verse así!
+
+¿Qué tal
+
+si no se casa con Farquaad?
+
+Tengo que casarme.
+
+Sólo el beso de mi verdadero amor
+
+romperá el hechizo.
+
+Pero usted es una especie de ogra.
+
+Y Shrek--
+
+Bueno, tienen mucho en común.
+
+¿Shrek?
+
+Princesa, yo--
+
+Antes que nada, ¿cómo le va? ¿Bien?
+
+A mí también. Estoy bien.
+
+Vi esta flory se la traje
+
+porque es bonita y...
+
+la verdad, no me gusta...
+
+pero quizá a Ud. sí,
+
+porque Ud. es bonita.
+
+Pero Ud. me gusta
+
+de todos modos, y--
+
+Esto no va nada bien.
+
+Bueno, allá vamos.
+
+En serio. ¿Quién puede amar
+
+a una bestia tan horrenda y fea?
+
+Princesa y fealdad no vanjuntas.
+
+Por eso no puedo estar con Shrek.
+
+Solamente podré vivir
+
+feliz para siempre...
+
+hallando a mi verdadero amor.
+
+¿No te das cuentas, Burro?
+
+Así tiene que ser.
+
+Tengo que romper el hechizo.
+
+Al menos dígale a Shrek la verdad.
+
+¡No! No le puedes decir.
+
+Nadie se puede enterar.
+
+¿De qué sirve saber hablar
+
+si uno guarda secretos?
+
+Prométeme que no se lo dirás.
+
+Está bien, yo no se lo diré.
+
+Pero usted, debería.
+
+Antes de que esto acabe, voy a
+
+necesitar terapia. Ya tengo un tic.
+
+Le digo. No le digo.
+
+Le digo. No le digo.
+
+¡Le digo!
+
+¡Shrek!
+
+¿Shrek? Quiero decirte una--
+
+¡Shrek!
+
+- ¿Te sientes bien?
+
+- Perfecto. Mejor que nunca.
+
+Tengo que decirte algo.
+
+No me tiene que decir nada.
+
+Oí suficiente anoche.
+
+- ¿Oíste lo que dije?
+
+- Hasta la última palabra.
+
+Pensé que ibas a entender.
+
+Sí entiendo.
+
+Como dijo, ¿quién puede querer
+
+a una bestia fea, espantosa?
+
+Pensé que no te iba a importar.
+
+Pues sí importa.
+
+Justo a tiempo.
+
+Princesa, le traje una cosita.
+
+¿Qué me perdí?
+
+¿Quién dijo eso?
+
+No fue un burro.
+
 Princesa Fiona.
 
-SHREK
-Como prometido. Agora entregue.
+Como se lo prometí.
 
-FARQUAAD
-Muito bem, ogro. (apresenta um pedaço
-de papel) A escritura do seu pântano, desembaraçada
-fora, conforme combinado. Pegue e vá antes
-Eu mudei de ideia. (Shrek pega o papel)
-Perdoe-me, princesa, por surpreender
-você, mas você me assustou, porque eu tenho
-nunca vi uma beleza tão radiante antes.
-Eu sou Lorde Farquaad.
+Ahora, démelo.
 
-FIONA
-Lorde Farquaad? Ah, não, não. (Farquaad
-estala os dedos) Perdoe-me, meu senhor,
-pois eu estava apenas dizendo um breve... (Relógios
-como Farquaad é levantado de seu cavalo
-e se deitou na frente dela. Ele vem
-até a cintura.) adeus.
+Muy bien, ogro.
 
-FARQUAAD
-Ah, isso é tão doce. Você não tem
-desperdiçar boas maneiras com o ogro. Isso é
-não como se tivesse sentimentos.
+El título de propiedad
 
-FIONA
-Não, você está certo. Não.
+de tu ciénaga, sin intrusos.
 
-Burro observa essa troca com um olhar curioso em seu rosto.
+Tómaloyvete...
 
+antes de que cambie de opinión.
 
-FARQUAAD
-Princesa Fiona, linda, justa, impecável
-Fiona. Peço sua mão em casamento.
-Você será a noiva perfeita para o
-noivo perfeito?
+Perdone, princesa, por asustarla,
 
-FIONA
-Lorde Farquaad, eu aceito. Nada seria
-faço - -
+pero usted me asustó a mí.
 
-FARQUAAD
-(interrompendo) Excelente! Vou começar
-os planos, para amanhã nos casamos!
+Jamás había visto
 
-FIONA
-Não! Quero dizer, uh, por que esperar? Vamos pegar
-casou hoje antes do sol se pôr.
+una belleza tan radiante.
 
+Yo soy Lord Farquaad.
 
-FARQUAAD
-Oh, ansioso, você está? Você tem razão.
-Quanto antes melhor. Há tanto
-façam! Há o bufê, o bolo,
-a banda, a lista de convidados. Capitão, redondo
-alguns convidados! (um guarda coloca Fiona
-nas costas de seu cavalo)
+¿Lord Farquaad?
 
-FIONA
-Adeus, ogro.
+Ay, no, no.
 
-Todo o grupo de Farquaad começa a voltar para DuLoc. Relógios de burro
-eles vão.
+Perdóneme a mí, milord,
 
-BURRO
-Shrek, o que você está fazendo? Você está deixando
-ela se afaste.
+estaba a la mitad de un pequeño...
 
-SHREK
-Sim? E daí?
+adiós.
 
-BURRO
-Shrek, há algo sobre ela você
-não sei. Olha, eu falei com ela pela última vez
-noite, ela é - -
+Qué linda. No desperdicie
 
-SHREK
-Eu sei que você falou com ela ontem à noite.
-Vocês são ótimos amigos, não são? Agora se
-vocês dois são tão bons amigos, por que não
-você a segue até em casa?
+sus buenos modales con un ogro.
 
-BURRO
-Shrek, eu... - Quero ir contigo.
+No tiene sentimientos.
 
-SHREK
-Eu te disse, não disse? Você não está vindo
-casa comigo. Eu vivo sozinho! Meu pântano!
-Eu! Ninguém mais! Entender? Ninguém!
-Especialmente inútil, patético, irritante,
-burros falantes!
+No, tiene razón.
 
-BURRO
-Mas eu pensei - -
+No los tiene.
 
-SHREK
-Sim. Você sabe o que? Você pensou errado!
-(despedida)
+Princesa Fiona--
 
-BURRO
+hermosa, bella, perfecta Fiona...
+
+le pido que se case conmigo.
+
+¿Quiere ser la novia perfecta
+
+para el novio perfecto?
+
+Lord Farquaad, acepto.
+
+Nada me hará--
+
+¡Excelente! Haré los planes.
+
+¡Nos casamos mañana!
+
+¡No!
+
+Digo, ¿para qué esperar?
+
+Casémonos hoy.
+
+Antes del ocaso.
+
+Ah, estamos ansiosos.
+
+Pues, entre antes, mejor.
+
+¡Hay tanto que hacer!
+
+Está el banquete,
+
+el pastel, la banda--
+
+¡Capitán, reúna unos invitados!
+
+Que os vaya bien, ogro.
+
+¡Shrek, estás dejando
+
+que se te vaya!
+
+¿Y qué?
+
+Hay algo acerca de ella que no
+
+sabes. Estuvimos hablando anoche--
+
+Sí, ya sé que hablaron anoche.
+
+Son grandes amigos, ¿no?
+
+Yya que lo son,
+
+¿por qué no la sigues a su casa?
+
+Pero quiero irme contigo.
+
+¡Te dije que no te vas a ir
+
+a casa conmigo!
+
+¡Yo vivo solo! ¡Es mi ciénaga!
+
+¡Ahí vivoyoy nadie más!
+
+¿Entiendes? ¡Nadie!
+
+¡Y menos burros parlanchines,
+
+inútiles, patéticos y molestos!
+
+Peroyo pensé--
+
+Pues, ¿sabes qué?
+
+¡Pensaste mal!
+
 Shrek.
 
-Montagem de cenas diferentes. Shrek chegando em casa. Fiona
-sendo ajustado para o vestido de noiva. Burro em um córrego em execução
-no dragão. Shrek limpando sua casa. Fiona jantando
-sozinho. Shrek jantando sozinho.
+¿Burro?
 
-CASA DO SHREK
+¿Qué haces?
 
-Shrek está jantando quando ouve um som lá fora. Ele vai
-fora para investigar.
+Tú mejor que nadie deberías saber
 
-SHREK
-BURRO? (O Burro o ignora e continua
-com o que ele está fazendo.) O que você está
-fazendo?
+qué es. Es un muro.
 
-BURRO
-Eu pensaria que, de todas as pessoas, você
-reconhecer uma parede quando você vê um.
+Pues, sí.
 
+Pero el muro debería rodear
 
-SHREK
-Bem, sim. Mas a parede é suposto
-contornar meu pântano, não atravessá-lo.
+mi ciénaga, no atravesarla.
 
+Así es. ¿Ves? Rodea tu mitad.
 
-BURRO
-É em torno de sua metade. Veja que é seu
-metade, e esta é a minha metade.
+Ésta es mi mitad.
 
-SHREK
-Oh! Sua metade. Hum.
+Ah, tu mitad.
 
-BURRO
-Sim, minha metade. Ajudei a resgatar a princesa.
-Eu fiz metade do trabalho. eu recebo metade do
-espólio. Agora me dê aquela grande e velha pedra,
-aquele que se parece com a sua cabeça.
+Rescatamos a la princesa entre los
 
+dos, partimos la recompensa en dos.
 
-SHREK
-Recuar!
+Pásame esa roca,
 
-BURRO
-Não, você recua.
+la que parece tu cabeza.
 
-SHREK
-Este é o meu pântano!
+- Vete de aquí.
 
-BURRO
-Nosso pântano.
+- ¡No, tú vete de aquí!
 
-SHREK
-(pega o galho da árvore O Burro está a trabalhar
-com) Solte, Burro!
+- ¡Ésta es mi ciénaga!
 
-BURRO
-Você deixou ir.
+- ¡Nuestra ciénaga!
 
-SHREK
-Macaco teimoso!
+- ¡Suelta!
 
-BURRO
-Ogro fedorento.
+- ¡Tú suelta!
 
-SHREK
-Multar! (deixa o galho da árvore e caminha
-um jeito)
+- ¡Burro terco!
 
-BURRO
-Ei, ei, volte aqui. eu não terminei
-com você ainda.
+- ¡Ogro apestoso!
 
-SHREK
-Bem, eu terminei com você.
+¡Perfecto!
 
-BURRO
-Uh-uh. Você sabe, com você é sempre,
-"Eu eu Eu!" Bem, adivinhe! Agora
-é a minha vez! Então você acabou de calar a boca e
-prestar atenção! Você é mau comigo. Você
-me insulte e você não aprecia nada
-aquilo eu faço! Você está sempre me empurrando
-ao redor ou me empurrando para longe.
+¡Todavía no acabo contigo!
 
-SHREK
-Oh sim? Bem, se eu te tratasse assim
-ruim, como você voltou?
+¡Yoya acabé contigo!
 
-BURRO
-Porque é isso que os amigos fazem! Elas
-perdoar um ao outro!
+¡Tú sólo piensas en ""yo, yo, yo``!
 
-SHREK
-Oh sim. Você está certo, Burro. Eu perdoo
-você... por me esfaquear pelas costas!
-(vai para a casinha e bate o
-porta)
+¿Sabes qué? ¡Ahora me toca a mí,
 
-BURRO
-Ah! Você está tão embrulhado em camadas,
-menino cebola, você tem medo do seu próprio
-sentimentos.
+así que cállatey pon atención!
 
-SHREK
-(os) Vá embora!
+Tú eres malo conmigo, me insultas,
 
-BURRO
-Aí está você, fazendo isso de novo apenas
-como você fez com Fiona. Tudo que ela sempre
-fazer era como você, talvez até te amo.
+no aprecias nada de lo que hago.
 
+¡O me tratas a patadas
 
-SHREK
-(os) Me ama? Ela disse que eu era feio, um
-criatura medonha. Eu ouvi os dois
-você falando.
+o me echas a patadas!
 
-BURRO
-Ela não estava falando de você. Ela era
-falando sobre, uh, outra pessoa.
+Pues, si te traté tan mal,
 
+¿por qué volviste?
 
-SHREK
-(abre a porta e sai) Ela não estava
-falando sobre mim? Bem, então quem era
-ela está falando?
+¡Porque eso hacen los amigos!
 
-BURRO
-Uh-uh, de jeito nenhum. Eu não estou dizendo nada.
-Você não quer me ouvir. Certo?
-Certo?
+¡Se perdonan!
 
-SHREK
-BURRO!
+Sí, tienes razón, Burro.
 
-BURRO
-Não!
+Te perdono...
 
-SHREK
-Ok, olhe. Desculpe, tudo bem? (suspirar)
-Eu sinto Muito. Acho que sou apenas um grande,
-ogro estúpido e feio. Você pode me perdoar?
+¡por clavarme un cuchillo
 
+en la espalda!
 
-BURRO
-Ei, é para isso que servem os amigos, certo?
+¡Tienes tantas capas, Cebollín,
 
+que le temes a tus sentimientos!
 
-SHREK
-Certo. Amigos?
+¡Lárgate!
 
-BURRO
-Amigos.
+Me estás tratando como a Fiona.
 
-SHREK
-Então, hum, o que Fiona disse sobre mim?
+Tú le gustabas. Quizá te amaba.
 
+¿Amarme?
 
-BURRO
-O que você está me pedindo? Por que não
-você só vai perguntar a ela?
+¡Dijo que era feo!
 
-SHREK
-O casamento! Nós nunca vamos fazer isso em
-Tempo.
+Una criatura espantosa.
 
-BURRO
-Ha ha ha! Nunca tema, para onde, há
-uma vontade, há um caminho e eu tenho um caminho.
-(assobios)
+¡Los oí hablando a los dos!
 
-De repente, o dragão chega e voa baixo o suficiente para
-eles podem subir.
+No estaba hablando de ti.
 
-SHREK
-BURRO?
+Estaba hablando de-- otra persona.
 
-BURRO
-Acho que é apenas o meu magnetismo animal.
+¿No estaba hablando de mí?
 
+¿Entonces de quién estaba hablando?
 
-Ambos riem.
+Yo no te voy a decir nada.
 
-SHREK
-Ah, venha aqui, você. (dá ao Burro um
-noogie)
+No me quieres escuchar, ¿cierto?
 
-BURRO
-Tudo bem, tudo bem. Não pegue tudo
-babado. Ninguém gosta de um beijo na bunda. Tudo
-certo, suba e segure firme. eu não tenho
-teve a chance de instalar os cintos de segurança
-ainda.
+- ¡Burro!
 
-Eles sobem a bordo do dragão e ela parte para DuLoc.
+- ¡No!
 
-DULOC - IGREJA
+Bueno, mira-- perdóname.
 
-Fiona e Farquaad vão se casar. A cidade inteira está lá.
-O cara do cartão de prompter segura um cartão que diz 'Silêncio Reverenciado'.
+¿De acuerdo?
 
+Perdóname.
 
-PADRE
-Povo de DuLoc, nos reunimos aqui hoje
-para testemunhar a união....
+Parece que sólo soy
 
-FIONA
-(olhando para o sol poente) Um-
+un ogrote estúpidoy feo.
 
-PADRE
-...do nosso novo rei...
+¿Me puedes perdonar?
 
-FIONA
-Com licença. Poderíamos apenas pular adiante
-para o "eu faço"?
+Para eso son los amigos. ¿Cierto?
 
-FARQUAAD
-(ri e depois faz um gesto para o padre
-para satisfazer Fiona) Vá em frente.
+Cierto.
 
-PÁTIO
+- ¿Amigos?
 
-Alguns guardas estão circulando. De repente, o dragão pousa com
-um boom. Todos os guardas saem correndo.
+- Amigos.
 
-BURRO
-(para Dragon) Vá em frente, divirta-se.
-Se precisarmos de você, assobiarei. Que tal
-este? (ela balança a cabeça e vai atrás dos guardas)
-Shrek, espere, espere! Espere um minuto! Você
-quer fazer isso direito, não é?
+Entonces...
 
-SHREK
-(na porta da igreja) O que você está falando
-cerca de?
+¿qué dijo Fiona de mí?
 
-BURRO
-Há uma linha que você tem que esperar. o
-pregador vai dizer: "Fale agora ou
-cale-se para sempre." Foi quando
-você diz: "Eu me oponho!"
+¿Por qué me preguntas a mí?
 
-SHREK
-Eu não tenho tempo para isso!
+Vey pregúntale a ella.
 
-BURRO
-Ei, espere. O que você está fazendo? Ouço
-para mim! Olha, você ama essa mulher, não
-vocês?
+¡La boda!
 
-SHREK
-Sim.
+¡No vamos a llegar a tiempo!
 
-BURRO
-Você quer segurá-la?
+No temas. Querer es poder.
 
-SHREK
-Sim.
+Yyo sé cómo vas a poder.
 
-BURRO
-Por favor, ela?
+¡Burro!
 
-SHREK
-Sim!
+Debe ser mi magnetismo animal.
 
-BURRO
-(cantando estilo James Brown) Então você
-tem que, tem que tentar um pouco de ternura.
-(normal) As garotas adoram aquele romântico
-porcaria!
+- Ven acá, tú.
 
-SHREK
-Tudo bem! Pare com isso. Quando isso acontece
-cara dizer a linha?
+- No te pongas sentimental.
 
-BURRO
-Temos que verificar.
+Súbetey...
 
-DENTRO DA IGREJA
+sujétate bien. Todavía no instalo
 
-Enquanto o padre fala vemos a sombra do Burro através de um dos
-janelas Shrek o joga para cima para que ele possa ver.
+cinturones de seguridad.
 
-PADRE
-E assim, pelo poder investido em mim...
+Gente de DuLoc...
 
+SI LENCIO REVERENCIAL
 
-Fora
+estamos aquí reunidos...
 
-SHREK
-O que você vê?
+el día de hoy
 
-BURRO
-A cidade inteira está lá.
+para presenciar la unión...
 
-Lado de dentro
+Disculpe.
 
-PADRE
-Eu agora os declaro marido e mulher...
+¿Podemos pasar directo
 
+a los ""¿Aceptas?``?
 
-Fora
+Continúe.
 
-BURRO
-Eles estão no altar.
+Vey diviértete. Si te necesitamos,
 
-Lado de dentro
+te llamo con un silbido.
 
-PADRE
-...Rei e Rainha.
+¡Espera!
 
-Fora
+¿No quieres hacer esto bien?
 
-BURRO
-Mãe Fletcher! Ele já disse isso.
+¿De qué hablas?
 
+El sacerdote va a decir una frase:
 
-SHREK
-Ah, pelo amor de Pete!
+""Que hable ahora
 
-Ele corre para dentro sem pegar o Burro, que bate forte no chão.
+o calle para siempre``.
 
+Y tú dices: ""¡Yo me opongo!``
 
-DENTRO DA IGREJA
+¡No tengo tiempo para eso!
 
-SHREK
-(correndo em direção ao altar) Eu me oponho!
+Escúchame.
 
+Tú amas a esa mujer, ¿no?
 
-FIONA
-Shrek?
+¿Quieres abrazarla?
 
-Toda a congregação suspira ao ver Shrek.
+¿Complacerla?
 
-FARQUAAD
-Ah, agora o que ele quer?
+Entonces tienes que usar
 
-SHREK
-(para a congregação quando ele chega à frente
-da Igreja) Olá a todos. Tendo
-um bom tempo, não é? Eu amo DuLoc, primeiro
-de tudo. Muito limpo.
+unpoco de ternura
 
-FIONA
-O que você está fazendo aqui?
+Las chicas son románticas.
 
-SHREK
-Realmente, é rude o suficiente estar vivo
-quando ninguém te quer, mas aparecendo
-sem ser convidado para um casamento...
+¡Está bien!
 
-SHREK
-Fiona! Eu preciso falar com você.
+¿Cuándo va a decir esa frase?
 
-FIONA
-Ah, agora você quer conversar? É um pouco
-tarde para isso, então se você me der licença
-- -
+Veamos.
 
-SHREK
-Mas você não pode se casar com ele.
+Y así,
 
-FIONA
-E porque não?
+por el poder que me otorga...
 
-SHREK
-Porque- - Porque ele está apenas se casando
-você para que ele possa ser rei.
+- ¿Cuándo?
 
-FARQUAAD
-Ultrajante, ultrajoso! Fiona, não dê ouvidos a ele.
+- Vino todo el pueblo.
 
+los declaro...
 
-SHREK
-Ele não é seu verdadeiro amor.
+Están en el altar.
 
-FIONA
-E o que você sabe sobre o amor verdadeiro?
+¡Caramba, ya lo dijo!
 
+¡Ay, por el amor de Dios!
 
-SHREK
-Bem, eu - - Uh - - quero dizer - -
+¡Yo me opongo!
 
-FARQUAAD
-Ah, isso é precioso. O ogee caiu
-apaixonada pela princesa! Ah, bom
-Senhor. (risos)
+¿Shrek?
 
-O cara do cartão de prompter segura um cartão que diz 'Ria'. o
-toda a congregação ri.
+Y ahora, ¿qué quiere?
 
-FARQUAAD
-Um ogro e uma princesa!
+Hola a todos.
 
-FIONA
-Shrek, isso é verdade?
+¿Lo están pasado bien?
 
-FARQUAAD
-Quem se importa? É absurdo! Fiona,
-meu amor, estamos a um beijo de distância
-nosso "felizes para sempre". Agora me beije!
-(enruga os lábios e se inclina em direção a ela,
-mas ela recua.)
+Me encanta DuLoc.
 
-FIONA
-(olhando para o sol poente) "À noite
-de um jeito, de dia de outro." (para Shrek)
-Eu queria te mostrar antes.
+Muy limpio.
 
-Ela recua e quando o sol se põe, ela se transforma em seu eu ogro.
-Ela dá a Shrek um sorriso tímido.
+¿Qué haces aquí?
 
-SHREK
-Bem, uh, isso explica muito. (Fiona
-sorrisos)
+Ya bastante grosero es estarvivo
 
-FARQUAAD
-Eca! É nojento! Guardas! Guardas!
-Eu ordeno que você tire isso da minha vista
-agora! Pegue eles! Pegue os dois!
+cuando nadie te quiere.
 
-Os guardas correm e separam Fiona e Shrek. Shrek luta
-eles.
+¡Pero venir sin invitación
 
-SHREK
-Não não!
+a una boda!
 
-FIONA
-Shrek!
+Fiona, necesito hablar contigo.
 
-FARQUAAD
-Este hocus-pocus não altera nada. este
-casamento é obrigatório, e isso faz com que
-eu rei! Ver? Ver?
+¿Ahora quieres hablar?
 
-FIONA
-Não, me solte! Shrek!
+Pues ya es demasiado tarde.
 
-SHREK
-Não!
+- ¡No puedes casarte con él!
 
-FARQUAAD
-Não fiquem aí parados, seus idiotas.
+- ¿Por qué no?
 
+¡Él sólo se quiere casar contigo
 
-SHREK
-Saia do meu caminho! Fiona! Arrgh!
+para poder ser rey!
 
-FARQUAAD
-Eu vou fazer você se arrepender do dia em que nos conhecemos.
-Vou vê-lo desenhado e esquartejado! Você vai
-implorar pela morte para salvá-lo!
+¡Qué ultraje!
 
-FIONA
-Não, Shrek!
+No le hagas caso.
 
-FARQUAAD
-(segure uma adaga na garganta de Fiona) E
-quanto a você, minha esposa...
+Él no es tu verdadero amor.
 
-SHREK
-Fiona!
+¿Qué sabes tú de eso?
 
-FARQUAAD
-Eu vou te trancar naquela torre
-para o resto de seus dias! Eu sou rei!
+Bueno, yo...
 
+Ay, esto es maravilloso.
 
-Shrek consegue soltar a mão e assobia.
+¡El ogro se ha enamorado
 
-FARQUAAD
-vou ter encomenda! Eu terei perfeição!
-Eu terei - - (Burro e o dragão
-aparecer e o dragão se inclina e
-come Farquaad) Aaaah! Aah!
+de la princesa! ¡Santo Dios!
 
-BURRO
-Tudo bem. Ninguém se move. eu tenho um dragão
-aqui, e eu não tenho medo de usá-lo.
-(O dragão ruge.) Eu sou um burro
-A beira!
+RISA
 
-O dragão arrota e a coroa de Farquaad voa para fora de sua boca
-e cai no chão.
+¡Un ogroy una princesa!
 
-BURRO
-Casamentos de celebridades. Eles nunca duram,
-Eles?
+Shrek, ¿es verdad?
 
-A congregação aplaude.
+¿Qué importa?
 
-BURRO
-Vá em frente, Shrek.
+¡Es ridículo!
 
-SHREK
-Ah, Fiona?
+Mi amor, estamos a un beso
 
-FIONA
-Sim, Shrek?
+de nuestro ""felices para siempre``.
 
-SHREK
-Eu - - Eu te amo.
+¡Bésame!
 
-FIONA
-Sério?
+""De noche, de una forma
 
-SHREK
-Sério sério.
+De día, de otra.``
 
-FIONA
-(sorri) Eu também te amo.
+Quería enseñarte antes.
 
-Shrek e Fiona se beijam. Thelonius pega um dos cartões e escreve
-'Awwww' nas costas e depois mostra para a congregação.
+¡Vaya!
 
+Eso explica muchas cosas.
 
-CONGREGAÇÃO
-Aawww!
+¡Qué asco!
 
-De repente, a magia do feitiço afasta Fiona. Ela é levantada
-no ar e ela paira lá enquanto a magia funciona ao redor
-sua.
+¡Guardias! ¡Guardias!
 
-SUSSURROS
-"Até que você encontre o primeiro beijo do amor verdadeiro
-e então tomar a verdadeira forma do amor. Leva
-a verdadeira forma do amor. Assuma a verdadeira forma do amor."
+¡Llévense eso de mi vista!
 
+¡Ahora! ¡Llévenselos!
 
-De repente, os olhos de Fiona se arregalam. Ela é consumida pelo feitiço
-e, em seguida, é lentamente baixado para o chão.
+¡A los dos!
 
-SHREK
-(indo até ela) Fiona? Fiona. São
-Você está bem?
+¡Todos estos ""hechizos``
 
-FIONA
-(levantando-se, ela ainda é um ogro) Bem,
-sim. Mas eu não entendo. eu devo
-para ser bonita.
+no cambian nada!
 
-SHREK
-Mas você é linda.
+¡Este matrimonio es legal,
 
-Eles sorriem um para o outro.
+lo cual me hace rey! ¿Ves?
 
-BURRO
-(risos) Eu estava esperando que isso fosse
-um final feliz.
+¡Suéltenme!
 
-Shrek e Fiona se beijam... e o beijo se transforma em...
+¡No se queden ahí parados!
 
-O PÂNTANO
+¡Háganse a un lado! ¡Fiona!
 
-... seu beijo de casamento. Shrek e Fiona agora estão casados. 'Eu estou
-a Believer' de Smashmouth é tocada ao fundo. Shrek
-e Fiona se separam e correm pela multidão para o seu
-transporte. Que é feito de uma cebola gigante. Fiona joga seu buquê
-que Cinderela e Branca de Neve tentam pegar. Mas eles acabam
-até entrar em uma briga de gatos e assim o dragão pega o buquê
-em vez de. O homem de gengibre foi consertado um pouco e agora
-tem uma perna e anda com uma bengala-doce. Shrek e Fiona
-sai enquanto o resto dos convidados se divertem e o Burro assume
-cantando a canção.
+¡Bestia insolente! ¡Vas a
 
-HOMEM DE GENGIBRE
-Deus abençoe todos nós.
+arrepentirte de haberme conocido!
 
-BURRO
-(quando ele termina de cantar e nós desaparecemos para
-preto) Ah, isso é engraçado. Oh. Oh. Não posso
-respirar. Eu não consigo respirar.
+¡Voy a hacer que te descuarticen!
 
-O FIM
+¡Vas a rogarme que te mate!
+
+Y en cuanto a ti, esposa mía...
+
+¡volverás a estar encerrada
+
+por el resto de tus días!
+
+¡Yo soy rey!
+
+¡Tendré orden!
+
+¡Tendré perfección! ¡Tendré--
+
+¡Que nadie se mueva!
+
+¡Tengo un dragón y lo puedo usar!
+
+¡Soy un burro muy tenso!
+
+Los matrimonios de gente famosa
+
+nunca duran.
+
+Continúa, Shrek.
+
+¿Fiona?
+
+Yo...
+
+yo te amo.
+
+¿De veras?
+
+De veras, de veras.
+
+Yo también te amo.
+
+´Hasta encontrarelprimerbeso
+
+de tu verdaderoamor,
+
+Yadoptar, del verdaderoamor,
+
+la forma, ``
+
+¿Fiona?
+
+¿Te sientes bien?
+
+Pues, sí.
+
+Pero no entiendo.
+
+Debería ser hermosa.
+
+Eres hermosa.
+
+Yo esperaba
+
+que esto tuviera un final feliz.
+
+¡Dios nos bendiga a todos
+
+y cada uno de nosotros!
+
+¡Canten, todos!
+
+YVIVI ERON FEOS PARA SI EMPRE
+
+¡Qué divertido!
+
+Nopuedo respirar,
+
+Nopuedo respirar,
+
 `;
 
 enviarScript(script)
