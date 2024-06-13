@@ -50,13 +50,13 @@ que sólo se podía romper
 
 con el primer beso de amor.
 
-""Estaba encerrada en un castillo...
+ Estaba encerrada en un castillo...
 
 protegida por un dragón terrible,
 
 que arrojaba fuego.
 
-""Muchos caballeros valientes
+ Muchos caballeros valientes
 
 habían tratado...
 
@@ -64,7 +64,7 @@ de sacarla de esta prisión...
 
 pero ninguno había triunfado.
 
-""Ella esperaba en el cuarto
+ Ella esperaba en el cuarto
 
 más elevado de la torre más alta...
 
@@ -124,7 +124,7 @@ en la que salen corriendo.
 
 ¡Y no regresen!
 
-""Se buscan.
+ Se buscan.
 
 Criaturas de Cuentos de Hadas. 
 
@@ -352,7 +352,7 @@ Mírame. ¿Qué soy?
 
 ¿Muy alto?
 
-¡No, soy un ogro! De los de ""agarra
+¡No, soy un ogro! De los de  agarra
 
 tu antorcha y tu horquilla .
 
@@ -374,7 +374,7 @@ Shrek.
 
 ¿Sabes qué me gusta de ti, Shrek?
 
-Tu estilo de decir ""No me importa
+Tu estilo de decir  No me importa
 
 lo que piensen de mí .
 
@@ -674,7 +674,7 @@ peroya se me acabó la paciencia!
 
 Si no me dices, te...
 
-¡No, mis botones de ""gomitas , no!
+¡No, mis botones de  gomitas , no!
 
 Bueno.
 
@@ -1156,7 +1156,7 @@ Los milhojas.
 
 ¿A quién has oído decir
 
-""No me gustan los milhojas ?
+ No me gustan los milhojas ?
 
 Son deliciosos.
 
@@ -1204,7 +1204,7 @@ Yo sé lo que olíy no fue azufre.
 
 Aunque sí tiene que ver
 
-con ""sufre .
+con  sufre .
 
 Sí, es grande.
 
@@ -1370,7 +1370,7 @@ Tomaré medidas drásticas.
 
 No se metan conmigo,
 
-soy el ""escalasno .
+soy el  escalasno .
 
 Amo de las escaleras.
 
@@ -1450,7 +1450,7 @@ Qué lindo. ¡Vámonos!
 
 ¡Pero esperad, Sir Caballero!
 
-Este ""sed 
+Este  sed 
 
 nuestro primer encuentro.
 
@@ -1608,7 +1608,7 @@ Estoy eternamente agradecida.
 
 caballero sin su noble corcel?
 
-¿Oíste? Me llamó ""noble corcel .
+¿Oíste? Me llamó  noble corcel .
 
 Cree que soy un corcel.
 
@@ -1724,7 +1724,7 @@ mi verdadero amor...
 
 no un ogroy su mascota.
 
-Hasta ahí llegó el ""noble corcel .
+Hasta ahí llegó el  noble corcel .
 
 No me está facilitando mi trabajo.
 
@@ -1906,15 +1906,15 @@ Olvídalo.
 
 cuando nos den nuestra ciénaga?
 
-¿""Nuestra  ciénaga?
+¿ Nuestra  ciénaga?
 
 Cuando acabemos de rescatar
 
 a la princesa.
 
-¿""Acabemos ? Burro, nada de ""nos .
+¿ Acabemos ? Burro, nada de  nos .
 
-Nada de ""nuestra . Sólo soy...
+Nada de  nuestra . Sólo soy...
 
 yo con mi ciénaga.
 
@@ -1942,7 +1942,7 @@ como lo de la cebolla.
 
 No, ésta es otra de esas cosas
 
-como de ""cambio de tema .
+como de  cambio de tema .
 
 - ¿Por qué no lo quieres hablar?
 
@@ -1976,9 +1976,9 @@ el que tiene un problema conmigo.
 
 La gente, apenas me ve, empieza:
 
-""¡Ay! ¡Auxilio! ¡Corran! 
+ ¡Ay! ¡Auxilio! ¡Corran! 
 
-""¡Un gigantesco ogro estúpido! 
+ ¡Un gigantesco ogro estúpido! 
 
 Mejuzgan sin siquiera conocerme.
 
@@ -2502,13 +2502,13 @@ Yojamás la había visto así.
 
 Sólo pasa cuando se pone el sol.
 
-""De noche de una manera
+ De noche de una manera
 
 De día, de otra.
 
 Ésa será la norma. 
 
-""Hasta encontrar el primer beso
+ Hasta encontrar el primer beso
 
 de tu verdadero amor.
 
@@ -2870,7 +2870,7 @@ la que parece tu cabeza.
 
 ¡Yoya acabé contigo!
 
-¡Tú sólo piensas en ""yo, yo, yo !
+¡Tú sólo piensas en  yo, yo, yo !
 
 ¿Sabes qué? ¡Ahora me toca a mí,
 
@@ -2998,7 +2998,7 @@ Disculpe.
 
 ¿Podemos pasar directo
 
-a los ""¿Aceptas? ?
+a los  ¿Aceptas? ?
 
 Continúe.
 
@@ -3014,11 +3014,11 @@ te llamo con un silbido.
 
 El sacerdote va a decir una frase:
 
-""Que hable ahora
+ Que hable ahora
 
 o calle para siempre .
 
-Y tú dices: ""¡Yo me opongo! 
+Y tú dices:  ¡Yo me opongo! 
 
 ¡No tengo tiempo para eso!
 
@@ -3124,11 +3124,11 @@ Shrek, ¿es verdad?
 
 Mi amor, estamos a un beso
 
-de nuestro ""felices para siempre .
+de nuestro  felices para siempre .
 
 ¡Bésame!
 
-""De noche, de una forma
+ De noche, de una forma
 
 De día, de otra. 
 
@@ -3148,7 +3148,7 @@ Eso explica muchas cosas.
 
 ¡A los dos!
 
-¡Todos estos ""hechizos 
+¡Todos estos  hechizos 
 
 no cambian nada!
 
